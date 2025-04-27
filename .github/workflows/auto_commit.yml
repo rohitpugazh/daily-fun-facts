@@ -17,7 +17,7 @@ jobs:
       run: |
         echo "Fetching a new fun fact..."
     
-        RESPONSE=$(curl -s --max-time 10 https://uselessfacts.jsph.pl/random.json?language=en)
+        RESPONSE=$(curl -s -A "Mozilla/5.0" --max-time 10 https://uselessfacts.jsph.pl/random.json?language=en)
         FACT=$(echo "$RESPONSE" | jq -r '.text')
     
         if [ -z "$FACT" ] || [ "$FACT" == "null" ]; then
