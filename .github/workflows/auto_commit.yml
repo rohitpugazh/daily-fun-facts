@@ -19,27 +19,33 @@ jobs:
       run: |
         echo "Fetching a new fun fact..."
     
-        RESPONSE=$(curl -s -A "Mozilla/5.0" --max-time 10 https://uselessfacts.jsph.pl/random.json?language=en)
+        # Updated API endpoint (API v2)
+        RESPONSE=$(curl -s -A "Mozilla/5.0" --max-time 10 https://uselessfacts.jsph.pl/api/v2/facts/random?language=en)
 
         # Check if the API response is valid JSON
         if echo "$RESPONSE" | jq . > /dev/null 2>&1; then
           FACT=$(echo "$RESPONSE" | jq -r '.text')
+          SOURCE_URL=$(echo "$RESPONSE" | jq -r '.source_url')
         else
           echo "API response is invalid or not JSON. Using fallback fact."
           FACT="Fun Fact: Did you know that GitHub Actions can automate your life? 🚀"
+          SOURCE_URL=""
         fi
         
         if [ -z "$FACT" ] || [ "$FACT" == "null" ]; then
           echo "API returned no valid fact. Using fallback fact."
           FACT="Fun Fact: Did you know that GitHub Actions can automate your life? 🚀"
+          SOURCE_URL=""
         fi
     
         echo "Fact to use: $FACT"
     
         TODAY=$(date '+%Y-%m-%d')
-    
+
+        # Update daily.txt
         echo "$TODAY - $FACT" >> daily.txt
-    
+
+        # Update README.md
         echo "# 🌟 Daily Fun Fact" > README.md
         echo "" >> README.md
         echo "![Last Updated](https://img.shields.io/badge/Last_Updated-${TODAY//-/_}-blue?style=flat-square)" >> README.md
@@ -47,14 +53,20 @@ jobs:
         echo "**Latest Fun Fact:**" >> README.md
         echo "" >> README.md
         echo "> $FACT" >> README.md
+        
+        if [ ! -z "$SOURCE_URL" ] && [ "$SOURCE_URL" != "null" ]; then
+          echo "" >> README.md
+          echo "[Source]($SOURCE_URL)" >> README.md
+        fi
+
         echo "" >> README.md
         echo "---" >> README.md
         echo "" >> README.md
         echo "Collected Fun Facts are saved in [daily.txt](daily.txt) 📚" >> README.md
     
+        # Git operations
         git config user.name "YOUR_GITHUB_USERNAME"
         git config user.email "YOUR_EMAIL@example.com"
         git add daily.txt README.md
         git commit -m "Daily Fun Fact Update: $TODAY"
         git push
-  
