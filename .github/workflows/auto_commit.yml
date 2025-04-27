@@ -18,10 +18,17 @@ jobs:
         echo "Fetching a new fun fact..."
     
         RESPONSE=$(curl -s -A "Mozilla/5.0" --max-time 10 https://uselessfacts.jsph.pl/random.json?language=en)
-        FACT=$(echo "$RESPONSE" | jq -r '.text')
-    
+
+        # Check if the API response is valid JSON
+        if echo "$RESPONSE" | jq . > /dev/null 2>&1; then
+          FACT=$(echo "$RESPONSE" | jq -r '.text')
+        else
+          echo "API response is invalid or not JSON. Using fallback fact."
+          FACT="Fun Fact: Did you know that GitHub Actions can automate your life? 🚀"
+        fi
+        
         if [ -z "$FACT" ] || [ "$FACT" == "null" ]; then
-          echo "API failed, using fallback fact."
+          echo "API returned no valid fact. Using fallback fact."
           FACT="Fun Fact: Did you know that GitHub Actions can automate your life? 🚀"
         fi
     
