@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Chewing gum while peeling onions will keep you from crying.
+> Between 25% and 33% of the population sneeze when exposed to light.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
