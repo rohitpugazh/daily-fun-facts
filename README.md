@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Crocodiles and alligators are surprisingly fast on land.  Although they are rapid, they are not agile.  So, if being chased by one, run in a zigzag line to lose him or her.
+> Jefferson invented the dumbwaiter, the monetary system, and the folding attic ladder.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
