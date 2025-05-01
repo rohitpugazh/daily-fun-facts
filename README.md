@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> A pig`s orgasm lasts for 30 minutes.
+> Poland is the "stolen car capital of the world".
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
