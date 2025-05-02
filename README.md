@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> In space, astronauts are unable to cry, because there is no gravity and the tears won`t flow.
+> Ninety percent of all species that have become extinct have been birds.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
