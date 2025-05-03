@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> It has been estimated that humans use only 10% of their brain.
+> Thirty-five percent of people who use personal ads for dating are already married.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
