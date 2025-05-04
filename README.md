@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> A cat has 32 muscles in each ear.
+> Q is the only letter in the alphabet that does not appear in the name of any of the United States!
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
