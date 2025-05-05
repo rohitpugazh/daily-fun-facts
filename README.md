@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Your stomach has to produce a new layer of mucus every 2 weeks otherwise it will digest itself.
+> All US Presidents have worn glasses; some just didn`t like being seen wearing them in public.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
