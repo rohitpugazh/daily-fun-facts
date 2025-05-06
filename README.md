@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_05_05-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_05_06-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> All US Presidents have worn glasses; some just didn`t like being seen wearing them in public.
+>  was Harrison Ford`s idea so that he could take a bathroom break.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
