@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
->  was Harrison Ford`s idea so that he could take a bathroom break.
+> Mozart wrote the nursery rhyme `twinkle, twinkle, little star` at the age of 5.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
