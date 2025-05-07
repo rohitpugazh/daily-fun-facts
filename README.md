@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The HyperMart outside of Garland Texas has 58 check-outs.
+> Each month, there is at least one report of UFOs from each province of Canada.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
