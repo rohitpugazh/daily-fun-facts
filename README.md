@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_05_07-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_05_08-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Each month, there is at least one report of UFOs from each province of Canada.
+> Einstein couldn`t speak fluently until after his ninth birthday. His parents thought he was mentally retarded.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
