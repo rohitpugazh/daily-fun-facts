@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Einstein couldn`t speak fluently until after his ninth birthday. His parents thought he was mentally retarded.
+> Two-thirds of the world`s eggplant is grown in New Jersey.  
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
