@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> James Bond`s car had three different license plates in Goldfinger
+> Women manage the money and pay the bills in  75% of all Americans households.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
