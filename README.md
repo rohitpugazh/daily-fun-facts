@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Ten percent of the Russian government`s income comes from the sale of vodka.
+> In The Empire Strikes Back there is a potato hidden in the asteroid field
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
