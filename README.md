@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> There are 1,575 steps from the ground floor to the top of the Empire State building.
+> Prince Charles is an avid collecter of toilet seats.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
