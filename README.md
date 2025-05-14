@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Camels have three eyelids to protect themselves from blowing sand!
+> Giraffes have no vocal cords.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
