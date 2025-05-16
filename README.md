@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The microwave was invented after a researcher walked by a radar tube and a chocolate bar melted in his pocket.
+> Golf courses cover 4% of North America.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
