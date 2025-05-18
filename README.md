@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The world record for spitting a watermelon seed is 65 feet 4 inches.
+> Mount Olympus Mons on Mars is three times the size of Mount Everest.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
