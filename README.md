@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_05_17-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_05_18-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Tehran is the most expensive city on earth.
+> The world record for spitting a watermelon seed is 65 feet 4 inches.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
