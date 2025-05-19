@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Reindeer like to eat bananas.
+> Giraffes have no vocal cords.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
