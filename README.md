@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> A duck`s quack doesn`t echo, and no one knows why.
+> In medieval France, unfaithful wives were made to chase a chicken through town naked.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
