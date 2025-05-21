@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The Earth experiences 50,000 Earth quakes per year and is hit by Lightning 100 times a second.
+> 101 Dalmatians, Peter Pan, Lady and the Tramp, and Mulan are the only Disney cartoons where both parents are present and don`t die throughout the movie.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
