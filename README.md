@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> `Stewardesses` is the longest word that is typed with only the left hand.
+> `Obsession` is the most popular boat name.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
