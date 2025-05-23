@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_05_22-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_05_23-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> `Obsession` is the most popular boat name.
+> In Bangladesh, kids as young as 15 can be jailed for cheating on their finals!
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
