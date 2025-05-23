@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> In Bangladesh, kids as young as 15 can be jailed for cheating on their finals!
+> Nearly 80% of all animals on earth have six legs.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
