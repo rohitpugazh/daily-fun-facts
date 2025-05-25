@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The verb "cleave" is the only English word with two synonyms which are antonyms of each other: adhere and separate.
+> If you yelled for 8 years, 7 months and 6 days, you will have produced enough sound energy to heat one cup of coffee.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
