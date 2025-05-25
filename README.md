@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_05_24-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_05_25-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> the bird is the word
+> The verb "cleave" is the only English word with two synonyms which are antonyms of each other: adhere and separate.
 
-[Source](A fat guy)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
