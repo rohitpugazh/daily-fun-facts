@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> On average, people fear spiders more than they do death.
+> In Bangladesh, kids as young as 15 can be jailed for cheating on their finals!
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
