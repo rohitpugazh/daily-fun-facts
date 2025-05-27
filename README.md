@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> THE MOST UNUSUAL CANNONBALL: On two occasions, Miss `Rita Thunderbird` remained inside the cannon despite a lot of gunpowder encouragement to do otherwise. She performed in a gold lamé bikini and on one of the two occasions (1977) Miss Thunderbird remained lodged in the cannon, while her bra was shot across the Thames River.
+> The 57 on Heinz ketchup bottles represents the number of varieties of pickles the company once had.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
