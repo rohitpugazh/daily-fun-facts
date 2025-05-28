@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Poland is the "stolen car capital of the world".
+> In the 1980`s American migraines increased by 60%.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
