@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Each of us generates about 3.5 pounds of rubbish a day, most of it paper.
+> To Ensure Promptness, one is expected to pay beyond the value of service – hence the later abbreviation: T.I.P.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
