@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The eyes of a donkey are positioned so that it can see all four feet at all times.
+> The top 3 health-related searches on the Internet are (in this order): Depression, Allergies, & Cancer.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
