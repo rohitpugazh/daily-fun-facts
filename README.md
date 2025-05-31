@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> A jellyfish is 95 percent water!
+> Steely Dan got their name from a sexual device depicted in the book `The Naked Lunch`.  
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
