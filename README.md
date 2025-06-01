@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_05_31-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_06_01-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Steely Dan got their name from a sexual device depicted in the book `The Naked Lunch`.  
+> The value of Pi will be officially "rounded down" to 3.14 from 3.14159265359 on December 31, 1999.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
