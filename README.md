@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Average life span of a major league baseball: 7 pitches.
+> Simplistic passwords contribute to over 80% of all computer password break-ins.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
