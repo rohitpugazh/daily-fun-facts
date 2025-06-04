@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The plastic things on the end of shoelaces are called aglets.
+> The three most recognized Western names in China are Jesus Christ, Richard Nixon, & Elvis Presley.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
