@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Ants closely resemble human manners:  When they wake, they stretch & appear to yawn in a human manner before taking up the tasks of the day.
+> Most toilets flush in E flat.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
