@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> February 1865 is the only month in recorded history not to have a full moon.
+> If one places a tiny amount of liquor on a scorpion, it will instantly go mad and sting itself to death.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
