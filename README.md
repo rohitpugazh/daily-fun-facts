@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_06_06-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_06_07-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> If one places a tiny amount of liquor on a scorpion, it will instantly go mad and sting itself to death.
+> The amount of computer Memory required to run WordPerfect for Win95 is 8 times the amount needed aboard the space shuttle.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
