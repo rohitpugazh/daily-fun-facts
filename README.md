@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The amount of computer Memory required to run WordPerfect for Win95 is 8 times the amount needed aboard the space shuttle.
+> The human tongue tastes bitter things with the taste buds toward the back. Salty and pungent flavors are tasted in the middle of the tongue, sweet flavors at the tip!
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
