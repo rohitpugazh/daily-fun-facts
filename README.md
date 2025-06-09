@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Larry Lewis ran the 100-yard dash in 17.8 seconds in 1969, thereby setting a new world`s record for runners in the 100-years-or-older class. He was 101.
+> Any free-moving liquid in outer space will form itself into a sphere, because of its surface tension.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
