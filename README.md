@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_06_08-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_06_09-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> The average lead pencil will draw a line 35 miles long or write approximately 50,000 English words.  More than 2 billion pencils are manufactured each year in the United States. If these were laid end to end they would circle the world nine times.
+> Larry Lewis ran the 100-yard dash in 17.8 seconds in 1969, thereby setting a new world`s record for runners in the 100-years-or-older class. He was 101.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
