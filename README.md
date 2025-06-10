@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_06_09-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_06_10-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Any free-moving liquid in outer space will form itself into a sphere, because of its surface tension.
+> Donald Duck`s middle name is Fauntleroy.  
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
