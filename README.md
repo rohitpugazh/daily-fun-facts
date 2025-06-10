@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Donald Duck`s middle name is Fauntleroy.  
+> Reindeer like to eat bananas.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
