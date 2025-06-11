@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> It has NEVER rained in Calama, a town in the Atacama Desert of Chile.
+> An ostrich`s eye is bigger than its brain.  
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
