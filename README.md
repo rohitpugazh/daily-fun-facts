@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_06_11-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_06_12-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> An ostrich`s eye is bigger than its brain.  
+> A piece of paper can be folded no more then 9 times.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
