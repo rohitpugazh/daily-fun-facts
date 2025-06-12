@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> A piece of paper can be folded no more then 9 times.
+> One third of all cancers are sun related.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
