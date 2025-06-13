@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> In medieval France, unfaithful wives were made to chase a chicken through town naked.
+> The average talker sprays about 300 microscopic saliva droplets per minute, about 2.5 droplets per word.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
