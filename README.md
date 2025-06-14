@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The Ramses brand condom is named after the great pharoh Ramses II who fathered over 160 children.
+> The strongest muscle (Relative to size) in the body is the tongue.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
