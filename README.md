@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The 57 on Heinz ketchup bottles represents the number of varieties of pickles the company once had.
+> It is illegal to hunt camels in the state of Arizona.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
