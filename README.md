@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Golf courses cover 4% of North America.
+> There are 293 ways to make change for a dollar.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
