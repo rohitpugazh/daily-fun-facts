@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The airplane Buddy Holly died in was the "American Pie." (Thus the name of the Don McLean song.)
+> Men can read smaller print than women; women can hear better.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
