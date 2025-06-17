@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_06_16-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_06_17-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> There are 293 ways to make change for a dollar.
+> The airplane Buddy Holly died in was the "American Pie." (Thus the name of the Don McLean song.)
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
