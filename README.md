@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> It takes about 142.18 licks to reach the center of a Tootsie pop.
+> 5,840 people with pillow related injuries checked into U.S. emergency rooms in 1992.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
