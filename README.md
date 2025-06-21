@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The average North American will eat 35,000 cookies during their life span.
+> It costs more to buy a new car today in the United States than it cost Christopher Columbus to equip and undertake three voyages to and from the New World.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
