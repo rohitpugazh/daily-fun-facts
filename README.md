@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> A piece of paper can be folded no more then 9 times.
+> Starfish haven`t got brains.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
