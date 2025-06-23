@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Every time you lick a stamp, you consume 1/10 of a calorie.
+> The world`s record for keeping a Lifesaver in the mouth with the hole intact is 7 hrs 10 min.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
