@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The plastic things on the end of shoelaces are called aglets.
+> The sperm of a mouse is actually longer than the sperm of an elephant.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
