@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Nearly 80% of all animals on earth have six legs.
+> Sex burns 360 calories per hour.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
