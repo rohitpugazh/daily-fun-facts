@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_06_26-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_06_27-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Sex burns 360 calories per hour.
+> There are 336 dimples on a regulation golf ball.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
