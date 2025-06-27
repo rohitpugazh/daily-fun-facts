@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> There are 336 dimples on a regulation golf ball.
+> Every year 11,000 Americans injure themselves while trying out bizarre sexual positions.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
