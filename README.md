@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Every acre of American crops harvested contains 100 pounds of insects.
+> A dragonfly has a lifespan of 24 hours.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
