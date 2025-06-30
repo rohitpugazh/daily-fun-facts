@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The `Golden Arches` of fast food chain McDonalds is more recognized worldwide than the religious cross of Christianity.
+> 70% of all boats sold are used for fishing.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
