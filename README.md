@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The average person spends about two years on the phone in a lifetime.
+> Reindeer like to eat bananas.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
