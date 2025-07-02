@@ -4,7 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Fun Fact: Did you know that GitHub Actions can automate your life? 🚀
+> Most American car horns honk in the key of F.
+
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
