@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Thirty-five percent of people who use personal ads for dating are already married.
+> The plastic things on the end of shoelaces are called aglets.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
