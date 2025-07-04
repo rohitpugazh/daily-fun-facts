@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Americans travel 1,144,721,000 miles by air every day
+> The only real person to ever to appear on a pez dispenser was Betsy Ross.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
