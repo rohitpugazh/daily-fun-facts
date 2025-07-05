@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> 101 Dalmatians, Peter Pan, Lady and the Tramp, and Mulan are the only Disney cartoons where both parents are present and don`t die throughout the movie.
+> You burn more calories sleeping than you do watching TV.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
