@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Average number of people airborne over the US any given hour: 61,000.
+> More bullets were fired in `Starship Troopers` than any other movie ever made.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
