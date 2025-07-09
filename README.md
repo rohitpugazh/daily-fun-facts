@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> %60 of all people using the Internet, use it for pornography.
+> Men can read smaller print than women; women can hear better.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
