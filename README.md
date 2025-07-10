@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Shakespeare spelled his OWN name several different ways.
+> Every year 11,000 Americans injure themselves while trying out bizarre sexual positions.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
