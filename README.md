@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Camels have three eyelids to protect themselves from blowing sand!
+> The dot over the letter `i` is called a tittle.  
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
