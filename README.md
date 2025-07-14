@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Most lipstick contains fish scales!
+> Babies are born without kneecaps. They don`t appear until the child reaches 2-6 years of age.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
