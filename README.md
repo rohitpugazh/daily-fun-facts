@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The average North American will eat 35,000 cookies during their life span.
+> The airplane Buddy Holly died in was the "American Pie." (Thus the name of the Don McLean song.)
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
