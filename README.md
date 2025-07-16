@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The thumbnail grows the slowest, the middle nail the fastest, nearly 4 times faster than toenails.
+> Tigers not only have striped fur, they have striped skin!
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
