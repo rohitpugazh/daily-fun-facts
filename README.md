@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The very first bomb dropped by the Allies on Berlin during World War II Killed the only elephant in the Berlin Zoo.
+> The only two days of the year in which there are no professional sports games--MLB, NBA, NHL, or NFL--are the day before and the day after the Major League All-Star Game.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
