@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The average person spends 12 weeks a year `looking for things`.
+> Ten percent of the Russian government`s income comes from the sale of vodka.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
