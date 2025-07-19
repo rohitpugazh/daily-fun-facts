@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_07_18-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_07_19-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Ten percent of the Russian government`s income comes from the sale of vodka.
+> Between 2 and 3 jockeys are killed each year in horse racing.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
