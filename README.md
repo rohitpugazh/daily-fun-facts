@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Between 2 and 3 jockeys are killed each year in horse racing.
+> You can`t kill yourself by holding your breath.  
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
