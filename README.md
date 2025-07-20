@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Every time you lick a stamp, you consume 1/10 of a calorie.
+> Months that begin on a Sunday will always have a `Friday the 13th`.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
