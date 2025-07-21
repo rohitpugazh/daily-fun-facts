@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> When the University of Nebraska Cornhuskers play football at home, the stadium becomes the state`s third largest city.
+> In eighteenth-century English gambling dens, there was an employee whose only job was to swallow the dice if there was a police raid.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
