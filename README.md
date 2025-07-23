@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_07_22-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_07_23-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> All US Presidents have worn glasses; some just didn`t like being seen wearing them in public.
+> Leonardo da Vinci could write with one hand while drawing with the other
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
