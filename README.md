@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Leonardo da Vinci could write with one hand while drawing with the other
+> 5,840 people with pillow related injuries checked into U.S. emergency rooms in 1992.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
