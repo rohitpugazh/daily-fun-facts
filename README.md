@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Van Gogh only sold one painting when he was alive.
+> You can`t kill yourself by holding your breath.  
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
