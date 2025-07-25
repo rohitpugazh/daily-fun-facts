@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Hong Kong holds the most Rolls Royce’s per capita.
+> On average, Americans` favorite smell is banana.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
