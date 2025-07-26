@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Virginia Woolf wrote all her books standing.
+> Mosquito repellents don`t repel. They hide you. The spray blocks the mosquito`s sensors so they don`t know you`re there.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
