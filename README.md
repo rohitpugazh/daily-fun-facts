@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_07_28-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_07_29-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Since 1978, 37 people have died by Vending Machine`s falling on them.  13 people are killed annually.  All this while trying to shake merchandise out of them. 113 people have been injured.
+> Leonardo da Vinci could write with one hand while drawing with the other
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
