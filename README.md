@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Leonardo da Vinci could write with one hand while drawing with the other
+> The following sentence: `A rough-coated, dough-faced, thoughtful ploughman strode through the streets of Scarborough; after falling into a slough, he coughed and hiccoughed.` Contains the nine different pronunciations of "ough" in the English Language.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
