@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> A duck`s quack doesn`t echo, and no one knows why.
+> Virginia Woolf wrote all her books standing.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
