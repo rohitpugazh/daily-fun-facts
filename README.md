@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Honey is the only food which does not spoil.
+> Men can read smaller print than women; women can hear better.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
