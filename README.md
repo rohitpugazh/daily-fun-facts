@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Thomas Edison, acclaimed inventor of the light bulb, was afraid of the dark.
+> The longest place-name still in use is: Taumatawhakatangihangakoauauotamateaturipukakapikimaungahoronukupokaiakitnatahu, a New Zealand hill.  
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
