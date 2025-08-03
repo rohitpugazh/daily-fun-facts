@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> There are 269 steps to the top of the Leaning Tower of Pisa
+> A crocodile cannot stick its tongue out.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
