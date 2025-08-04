@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> In The Empire Strikes Back there is a potato hidden in the asteroid field
+> Women blink nearly twice as much as men.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
