@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The word "set" has more definitions than any other word in the English language.
+> A bull can inseminate 300 cows from one single ejaculation.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
