@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Barbie`s measurements, if she were life-size, would be 39-29-33.
+> The pop you hear when you crack your knuckles is actually a bubble of gas burning.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
