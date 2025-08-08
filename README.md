@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> A crocodile cannot stick its tongue out.
+> Bats always turn left when exiting a cave
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
