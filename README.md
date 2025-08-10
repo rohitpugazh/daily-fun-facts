@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Some lions mate over 50 times a day.
+> Reindeer like to eat bananas.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
