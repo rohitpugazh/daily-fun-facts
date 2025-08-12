@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Virginia Woolf wrote all her books standing.
+> Dolphins sleep with one eye open!
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
