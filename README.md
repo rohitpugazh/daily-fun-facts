@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> If one spells out numbers, they would have to count to One Thousand before coming across the letter "A".
+> A giraffe can go without water longer than a camel.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
