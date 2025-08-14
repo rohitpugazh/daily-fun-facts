@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> There are 293 ways to make change for a dollar.
+> 3.6 cans of Spam are consumed each second.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
