@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The airplane Buddy Holly died in was the "American Pie." (Thus the name of the Don McLean song.)
+> If you yelled for 8 years, 7 months and 6 days, you will have produced enough sound energy to heat one cup of coffee.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
