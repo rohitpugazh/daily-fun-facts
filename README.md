@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> In Miconesia, coins are 12 feet across.
+> The ant always falls over on its right side when intoxicated.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
