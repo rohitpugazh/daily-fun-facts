@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The national anthem of Greece has 158 verses. No one in Greece has memorized all 158 verses.  
+> Thomas Edison, acclaimed inventor of the light bulb, was afraid of the dark.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
