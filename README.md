@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The average American butt is 14.9 inches long.
+> The name of all continents in the world end with the same letter that they start with.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
