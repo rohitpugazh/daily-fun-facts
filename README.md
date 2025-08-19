@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> You were born with 300 bones, but by the time you are an adult you will only have 206.
+> American Airlines saved $40,000 in 1987 by eliminating one olive from each salad served in first-class.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
