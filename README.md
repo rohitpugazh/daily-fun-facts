@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> In most advertisements, including newspapers, the time displayed on a watch is 10:10.
+> The first owner of the Marlboro company died of lung cancer.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
