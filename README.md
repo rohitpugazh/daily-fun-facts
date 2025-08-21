@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> When possums are playing `possum`, they are not "playing." They actually pass out from sheer terror.
+> Every acre of American crops harvested contains 100 pounds of insects.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
