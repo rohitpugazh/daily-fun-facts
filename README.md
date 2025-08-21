@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_08_20-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_08_21-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> The first owner of the Marlboro company died of lung cancer.
+> When possums are playing `possum`, they are not "playing." They actually pass out from sheer terror.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
