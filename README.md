@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The average North American will eat 35,000 cookies during their life span.
+> Mel Blanc (the voice of Bugs Bunny) was allergic to carrots.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
