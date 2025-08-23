@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Alfred Hitchcock didn`t have a belly button. It was eliminated when he was sewn up after surgery.
+> Former basketball superstar Michael Jordan is the most recognized face in the world, more than the pope himself.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
