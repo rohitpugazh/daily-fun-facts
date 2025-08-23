@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_08_22-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_08_23-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Mel Blanc (the voice of Bugs Bunny) was allergic to carrots.
+> Alfred Hitchcock didn`t have a belly button. It was eliminated when he was sewn up after surgery.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
