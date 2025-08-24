@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Los Angeles` full name `El Pueblo de Nuestra Senora la Reina de Los Angeles de Porciuncula` is reduced to 3.63% of its size in the abbreviation `L.A.`.
+> The following sentence: `A rough-coated, dough-faced, thoughtful ploughman strode through the streets of Scarborough; after falling into a slough, he coughed and hiccoughed.` Contains the nine different pronunciations of "ough" in the English Language.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
