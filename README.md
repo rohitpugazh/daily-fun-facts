@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The katydid bug hears through holes in its hind legs!
+> The crack of a whip is actually a tiny sonic boom, since the tip breaks the sound barrier.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
