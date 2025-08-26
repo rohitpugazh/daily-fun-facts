@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_08_25-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_08_26-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> The crack of a whip is actually a tiny sonic boom, since the tip breaks the sound barrier.
+> The Main Library at Indiana University sinks over an inch every year because when it was built, engineers failed to take into account the weight of all the books that would occupy the building.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
