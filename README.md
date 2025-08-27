@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Peanuts are one of the ingredients of dynamite.
+> Bats always turn left when exiting a cave
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
