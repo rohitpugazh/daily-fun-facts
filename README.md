@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Half the foods eaten throughout the world today were developed by farmers in the Andes Mountains (including potatoes, maize, sweet potatoes, squash, all varieties of beans, peanuts, manioc, papayas, strawberries, mulberries and many others).
+> If you went out into space, you would explode before you suffocated because there`s no air pressure.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
