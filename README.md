@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> One of the reasons marijuana is illegal today is because cotton growers in the 1930s lobbied against hemp farmers they saw it as competition.
+> The serial number of the first MAC ever produced was 2001.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
