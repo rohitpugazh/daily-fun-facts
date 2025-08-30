@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The name of all continents in the world end with the same letter that they start with.
+> All polar bears are left-handed.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
