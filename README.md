@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The state of Florida is bigger than England!
+> The longest recorded flight of a chicken is thirteen seconds.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
