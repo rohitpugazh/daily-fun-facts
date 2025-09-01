@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Who`s that playing the piano on the "Mad About You" theme? Paul Reiser himself.
+> The Great Wall of China is the only man-made structure visible from space.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
