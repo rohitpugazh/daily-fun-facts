@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> In England, the Speaker of the House is not allowed to speak.
+> The katydid bug hears through holes in its hind legs!
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
