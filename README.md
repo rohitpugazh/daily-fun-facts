@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Iceland consumes more Coca-Cola per capita than any other nation.
+> Dueling is legal in Paraguay as long as both parties are registered blood donors.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
