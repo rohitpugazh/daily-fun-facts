@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The average American looks at eight houses before buying one.
+> The longest word in the English language, according to the Oxford English Dictionary, is: pneumonoultramicroscopicsilicovolcanoconiosis..  
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
