@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The most common name in world is Mohammed.
+> A whale`s penis is called a dork.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
