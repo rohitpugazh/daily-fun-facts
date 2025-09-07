@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> A literal translation of a standard traffic sign in China: "Give large space to the festive dog that makes sport in the roadway."
+> Coca-Cola was originally green.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
