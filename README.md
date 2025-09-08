@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The "save" icon on Microsoft Word shows a floppy disk with the shutter on backwards.
+> Daffy Duck`s middle name is "Dumas"
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
