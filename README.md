@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Almonds are a member of the peach family.
+> Reindeer like to eat bananas.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
