@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The praying mantis is the only insect that can turn its head
+> The S in Harry S. Truman did not stand for anything.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
