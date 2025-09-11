@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The name of all continents in the world end with the same letter that they start with.
+> The word "Checkmate" in chess comes from the Persian phrase "Shah Mat," which means "the king is dead."
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
