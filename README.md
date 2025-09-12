@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Over 1000 birds a year die from smashing into windows!
+> In Aspen Colorado, you can have a maximum income of $104,000 and still receive government subsidized housing.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
