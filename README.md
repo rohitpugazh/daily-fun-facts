@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The the U.S. you dial `911`. In Stockholm, Sweden you dial 90000
+> A family of 26 could go to the movies in Mexico city for the price of one in Tokyo.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
