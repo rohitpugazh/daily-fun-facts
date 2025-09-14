@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Tigers not only have striped fur, they have striped skin!
+> The name Wendy was made up for the book "Peter Pan."
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
