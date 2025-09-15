@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Meteorologists claim they`re right 85% of the time (think about that one!)
+> The the U.S. you dial `911`. In Stockholm, Sweden you dial 90000
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
