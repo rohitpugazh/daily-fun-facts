@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> `Obsession` is the most popular boat name.
+> In the last 3,500 years, there have been approximately 230 years of peace throughout the civilized world.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
