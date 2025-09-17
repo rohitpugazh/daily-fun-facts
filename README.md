@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Honking of car horns for a couple that just got married is an old superstition to insure great sex.
+> It was discovered on a space mission that a frog can throw up. The frog throws up its stomach first, so the stomach is dangling out of its mouth. Then the frog uses its forearms to dig out all of the stomach`s contents and then swallows the stomach back down.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
