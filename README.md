@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> There`s a systematic lull in conversation every 7 minutes.
+> This common everyday occurrence composed of 59% nitrogen, 21% hydrogen, and 9% dioxide is called a `fart`.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
