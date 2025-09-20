@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Every time you lick a stamp, you consume 1/10 of a calorie.
+> Telly Savalas and Louis Armstrong died on their birthdays.  
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
