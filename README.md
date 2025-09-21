@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The 3 most valuable brand names on earth are Marlboro, Coca-Cola, and Budweiser (in that order).
+> Lawn darts are illegal in Canada.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
