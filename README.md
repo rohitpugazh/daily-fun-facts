@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> 111,111,111 x 111,111,111 = 12,345,678,987,654,321
+> THE MOST UNUSUAL CANNONBALL: On two occasions, Miss `Rita Thunderbird` remained inside the cannon despite a lot of gunpowder encouragement to do otherwise. She performed in a gold lamé bikini and on one of the two occasions (1977) Miss Thunderbird remained lodged in the cannon, while her bra was shot across the Thames River.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
