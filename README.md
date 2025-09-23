@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The name Jeep comes from “GP”, the army abbreviation for General Purpose.
+> The human tongue tastes bitter things with the taste buds toward the back. Salty and pungent flavors are tasted in the middle of the tongue, sweet flavors at the tip!
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
