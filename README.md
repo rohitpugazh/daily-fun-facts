@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> California consumes more bottled water than any other product.
+> The only domestic animal not mentioned in the Bible is the cat. 
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
