@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The microwave was invented after a researcher walked by a radar tube and a chocolate bar melted in his pocket.
+> Right handed people live, on average, nine years longer than left-handed people
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
