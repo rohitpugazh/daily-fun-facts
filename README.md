@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> 0.3% of all road accidents in Canada involve a Moose.
+> During a severe windstorm or rainstorm the Empire State Building sways several feet to either side.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
