@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_09_27-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_09_28-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> During a severe windstorm or rainstorm the Empire State Building sways several feet to either side.
+> In the great fire of London in 1666 half of London was burnt down but only 6 people were injured.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
