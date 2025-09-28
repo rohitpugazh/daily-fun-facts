@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> In the great fire of London in 1666 half of London was burnt down but only 6 people were injured.
+> During a severe windstorm or rainstorm the Empire State Building sways several feet to either side.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
