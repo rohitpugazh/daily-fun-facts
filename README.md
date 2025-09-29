@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> A duck's quack doesn't echo, and no one knows why.
+> US gold coins used to say “In Gold We Trust”.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
