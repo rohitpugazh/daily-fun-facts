@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The katydid bug hears through holes in its hind legs!
+> Nevada is the driest state in the U.S.. Each year it averages 7.5 inches (19 cm) of rain.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
