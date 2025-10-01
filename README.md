@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> 1,800 cigarettes are smoked per person each year in China.
+> The longest one-syllable word in the English language is "screeched."
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
