@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Americans on the average eat 18 acres of pizza every day.
+> Eating the heart of a male Partridge was the cure for impotence in ancient Babylon.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
