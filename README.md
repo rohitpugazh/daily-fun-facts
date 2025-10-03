@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Most toilets flush in E flat.
+> Cats’ urine glows under a black light.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
