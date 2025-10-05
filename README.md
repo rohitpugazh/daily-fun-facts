@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Albert Einstein and Charles Darwin both married their first cousins
+> The Vatican city registered 0 births in 1983
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
