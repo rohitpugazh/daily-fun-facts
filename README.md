@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The dot over the letter “i” is called a tittle.
+> Sir Isaac Newton was only 23 years old when he discovered the law of universal gravitation.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
