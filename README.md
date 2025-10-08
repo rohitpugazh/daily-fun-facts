@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_10_07-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_10_08-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Sir Isaac Newton was only 23 years old when he discovered the law of universal gravitation.
+> It`s against the law to doze off under a hair dryer in Florida/against the law to slap an old friend on the back in Georgia/against the law to Play hopscotch on a Sunday in Missouri.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
