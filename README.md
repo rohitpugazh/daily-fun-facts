@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> It`s against the law to doze off under a hair dryer in Florida/against the law to slap an old friend on the back in Georgia/against the law to Play hopscotch on a Sunday in Missouri.
+> You're born with 300 bones, but by the time you become an adult, you only have 206.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
