@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> There is actually no danger in swimming right after you eat, though it may feel uncomfortable.
+> On average people fear spiders more than they do death.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
