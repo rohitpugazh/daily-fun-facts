@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> A healthy (non-colorblind) human eye can distinguish between 500 shades of gray.
+> More people are afraid of open spaces (kenophobia) than of tight spaces (claustrophobia).
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
