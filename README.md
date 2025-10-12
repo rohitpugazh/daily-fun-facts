@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The Olympic was the sister ship of the Titanic, and she provided twenty-five years of service.
+> A piece of paper can be folded no more then 9 times.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
