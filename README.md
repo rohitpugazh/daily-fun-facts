@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Mount Olympus Mons on Mars is three times the size of Mount Everest.
+> A chameleon's tongue is twice the length of its body.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
