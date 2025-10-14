@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Hedenophobic means fear of pleasure.
+> Children grow faster in the springtime.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
