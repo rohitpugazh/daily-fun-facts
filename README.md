@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Tom Sawyer was the first novel written on a typewriter.
+> The country code for Russia is "007".
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
