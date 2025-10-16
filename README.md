@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Elephants only sleep for two hours each day.
+> Lee Harvey Oswald's cadaver tag sold at an auction for $6,600 in 1992.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
