@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Telly Savalas and Louis Armstrong died on their birthdays.  
+> The first episode of "Joanie Loves Chachi" was the highest rated American program in the history of Korean television, a country where "Chachi" translates to "penis".  
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
