@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> There are 336 dimples on a regulation US golf ball. In the UK its 330.
+> Every time you lick a stamp, you consume 1/10 of a calorie.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
