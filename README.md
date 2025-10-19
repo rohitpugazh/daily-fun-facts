@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The angel falls in Venezuela are nearly 20 times taller than Niagara Falls.
+> One in seven workers in Boston, Massachusetts walks to work.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
