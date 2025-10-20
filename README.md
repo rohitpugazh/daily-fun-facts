@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The world`s record for keeping a Lifesaver in the mouth with the hole intact is 7 hrs 10 min.
+> Honey is the only food which does not spoil.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
