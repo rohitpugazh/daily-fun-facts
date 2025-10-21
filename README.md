@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Pearls melt in vinegar.
+> In Italy, 17 is considered an unlucky number. In Japan, 4 is considered an unlucky number.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
