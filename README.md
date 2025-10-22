@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> One in eight million people has progeria, a disease that causes people to grow faster than they age.
+> A piece of paper can be folded no more then 9 times.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
