@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Worcestershire sauce in essentially an Anchovy Ketchup.
+> The longest recorded flight  of a chicken is 13 seconds
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
