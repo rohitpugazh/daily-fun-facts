@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Thomas Edison, acclaimed inventor of the light bulb, was afraid of the dark.
+> In medieval France, unfaithful wives were made to chase a chicken through town naked.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
