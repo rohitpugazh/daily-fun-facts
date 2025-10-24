@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_10_23-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_10_24-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> The longest recorded flight  of a chicken is 13 seconds
+> Thomas Edison, acclaimed inventor of the light bulb, was afraid of the dark.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
