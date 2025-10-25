@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The San Francisco Cable cars are the only mobile National Monuments.
+>  was Harrison Ford`s idea so that he could take a bathroom break.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
