@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> A bull can inseminate 300 cows from one single ejaculation.
+> Peter Falk, who played "Columbo," has a glass eye.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
