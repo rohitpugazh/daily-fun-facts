@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Dolphins can look in different directions with each eye. They can sleep with one eye open.
+> A “jiffy” is the scientific name for 1/100th of a second.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
