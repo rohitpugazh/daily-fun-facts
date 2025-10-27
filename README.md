@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_10_26-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_10_27-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Peter Falk, who played "Columbo," has a glass eye.
+> Dolphins can look in different directions with each eye. They can sleep with one eye open.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
