@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> There are a million ants for every person on Earth.
+> In the marriage ceremony of the ancient Inca Indians of Peru, the couple was considered officially wed when they took off their sandals and handed them to each other.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
