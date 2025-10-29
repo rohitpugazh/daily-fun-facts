@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The buzz from an electric razor in America plays in the key of B flat; Key of G in England.
+> 28% of Africa is classified as wilderness. In North America, its 38%.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
