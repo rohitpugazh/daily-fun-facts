@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Mr. Rogers is an ordained minister.
+> Canada makes up 6.67 percent of the Earth`s land area
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
