@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The town of Calma, Chile in the Atacama Desert has never had rain.
+> Prince Charles is an avid collecter of toilet seats.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
