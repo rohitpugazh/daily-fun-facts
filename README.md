@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> 98% of Japanese are cremated.
+> Butterflies taste with their feet.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
