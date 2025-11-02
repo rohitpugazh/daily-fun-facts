@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Samuel Clemens (Mark Twain) was born on and died on days when Halley’s Comet can be seen.
+> February 1865 is the only month in recorded history not to have a full moon.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
