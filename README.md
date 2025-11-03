@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_11_02-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_11_03-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> February 1865 is the only month in recorded history not to have a full moon.
+> Rugby, North Dakota is the geographical center of North America.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
