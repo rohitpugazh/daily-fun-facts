@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Rugby, North Dakota is the geographical center of North America.
+> The earth weighs around 6,588,000,000,000,000,000,000,000,000 tons.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
