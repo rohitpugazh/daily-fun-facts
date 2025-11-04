@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> There are a million ants for every person on Earth.
+> Lightning strikes the earth about 8 million times a day.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
