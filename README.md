@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> There are over 58 million dogs in the US
+> Only female mosquitoes bite.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
