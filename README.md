@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> A cat uses its whiskers to determine if a space is too small to squeeze through.
+> Switzerland is the only country with a square flag.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
