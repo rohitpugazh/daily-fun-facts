@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_11_06-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_11_07-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Switzerland is the only country with a square flag.
+> At the height of its power in 400 BC, the Greek city of Sparta had 25,000 citizens and 500,000 slaves.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
