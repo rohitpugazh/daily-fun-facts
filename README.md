@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> At the height of its power in 400 BC, the Greek city of Sparta had 25,000 citizens and 500,000 slaves.
+> The `Golden Arches` of fast food chain McDonalds is more recognized worldwide than the religious cross of Christianity.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
