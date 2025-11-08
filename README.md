@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Poland is the "stolen car capital of the world".
+> 28% of Africa is classified as wilderness. In North America, its 38%.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
