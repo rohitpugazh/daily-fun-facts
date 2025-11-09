@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The Simpsons is the longest running animated series on TV.
+> Lawn darts are illegal in Canada.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
