@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The thumbnail grows the slowest, the middle nail the fastest, nearly 4 times faster than toenails.
+> Lightning strikes the earth about 8 million times a day.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
