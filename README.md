@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> "Rhythm" is the longest English word without a vowel.
+> You can lead a cow upstairs but not downstairs.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
