@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> More people are allergic to cow's milk than any other food.
+> There was once an undersea post office in the Bahamas.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
