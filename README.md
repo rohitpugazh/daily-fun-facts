@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_11_13-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_11_14-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Bruce Lee was so fast that they actually had to s-l-o-w film down so you could see his moves.
+> The Great Wall of China is the only man-made structure visible from space.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
