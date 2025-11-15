@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The most sensitive cluster of nerves is at the base of the spine.
+> Who`s that playing the piano on the "Mad About You" theme? Paul Reiser himself.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
