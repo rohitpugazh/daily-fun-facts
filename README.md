@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The giant squid has the largest eyes in the world. 
+> There are no clocks in Las Vegas gambling casinos.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
