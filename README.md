@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> A “2 by 4" is really 1 1/2 by 3 1/2.
+> The glue on Israeli postage is certified kosher.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
