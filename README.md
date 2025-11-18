@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_11_17-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_11_18-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> The glue on Israeli postage is certified kosher.
+> Nutmeg is extremely poisonous if injected intravenously. 
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
