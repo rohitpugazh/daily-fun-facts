@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The first episode of "Joanie Loves Chachi" was the highest rated American program in the history of Korean television, a country where "Chachi" translates to "penis".  
+> In ancient Greece "idiot" meant a private citizen or layman.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
