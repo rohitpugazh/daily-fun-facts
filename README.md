@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> In a survey of 200000 ostriches over 80 years, not one tried to bury its head in the sand.
+> 28% of Africa is classified as wilderness. In North America, its 38%.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
