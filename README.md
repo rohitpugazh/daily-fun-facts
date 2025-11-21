@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> A honeybee can fly at fifteen miles per hour.
+> Einstein couldn`t speak fluently until after his ninth birthday. His parents thought he was mentally retarded.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
