@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Mel Blanc (the voice of Bugs Bunny) was allergic to carrots.
+> The first McDonald's restaurant in Canada was in Richmond, British Columbia.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
