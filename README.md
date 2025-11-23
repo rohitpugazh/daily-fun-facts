@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Human thighbones are stronger than concrete.
+> “The sixth sick sheik’s sixth sheep’s sick” is said to be the toughest tongue twister in English.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
