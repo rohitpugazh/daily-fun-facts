@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Rhode Island is the only state which the hammer throw is a legal high school sport.
+> Stephen Hawking was born exactly 300 years after Galileo died.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
