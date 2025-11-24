@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_11_23-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_11_24-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> “The sixth sick sheik’s sixth sheep’s sick” is said to be the toughest tongue twister in English.
+> Rhode Island is the only state which the hammer throw is a legal high school sport.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
