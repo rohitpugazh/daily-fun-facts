@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> One third of all cancers are sun related.
+> King Louis XIX ruled France for 15 minutes.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
