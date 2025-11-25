@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_11_24-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_11_25-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Stephen Hawking was born exactly 300 years after Galileo died.
+> One third of all cancers are sun related.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
