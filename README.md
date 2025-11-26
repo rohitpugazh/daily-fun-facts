@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> A snail can sleep for 3 years.
+> By raising your legs slowly and lying on your back, you cannot sink into quicksand.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
