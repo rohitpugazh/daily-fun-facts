@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> One-fourth of the world`s population lives on less than $200 a year.  Ninety million people survive on less than $75 a year.
+> Most lipstick contains fish scales!
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
