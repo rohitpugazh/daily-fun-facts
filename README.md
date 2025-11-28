@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The surface of the human skin is 6.5 square feet (2m).
+> The Great Wall of China is the only man-made structure visible from space.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
