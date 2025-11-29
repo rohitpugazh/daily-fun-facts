@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Buckingham Palace in England has over six hundred rooms.
+> The word "Checkmate" in chess comes from the Persian phrase "Shah Mat," which means "the king is dead."
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
