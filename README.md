@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> There are more than 40,000 characters in the Chinese script.
+> Present population of 5 billion plus people of the world is predicted to become 15 billion by 2080.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
