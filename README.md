@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_11_29-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_11_30-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> The word "Checkmate" in chess comes from the Persian phrase "Shah Mat," which means "the king is dead."
+> There are more than 40,000 characters in the Chinese script.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
