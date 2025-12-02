@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> In 1778, fashionable women of Paris never went out in blustery weather without a lightning rod attached to their hats.
+> Johnny Appleseed planted apples so that people could use apple cider to make alcohol.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
