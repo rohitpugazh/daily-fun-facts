@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_12_01-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_12_02-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> More than 90% of the Nicaraguan people are Roman Catholic.
+> In 1778, fashionable women of Paris never went out in blustery weather without a lightning rod attached to their hats.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
