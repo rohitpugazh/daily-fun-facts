@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> A literal translation of a standard traffic sign in China: "Give large space to the festive dog that makes sport in the roadway."
+> The first song played on Armed Forces Radio during operation Desert Shield was "Rock the Casba" by the Clash.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
