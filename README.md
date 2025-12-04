@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_12_03-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_12_04-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> The first song played on Armed Forces Radio during operation Desert Shield was "Rock the Casba" by the Clash.
+> William Marston engineered one of the earliest forms of the polygraph in the early 1900`s. Later he went on to create the comic strip Wonder Woman, a story about a displaced Amazon princess who forces anyone caught in her magic lasso to tell the truth
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
