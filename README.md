@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> In the United States, a pound of potato chips costs two hundred times more than a pound of potatoes.
+> The Australian $5 to $100 notes are made of plastic.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
