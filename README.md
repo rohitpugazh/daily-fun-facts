@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The cheetah is the only cat that can't retract its claws.
+> Jim Morrison, of the 60's rock group The Doors, was the first rock star to be arrested on stage.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
