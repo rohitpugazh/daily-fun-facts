@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> 25% of a human’s bones are in its feet.
+> Eating the heart of a male Partridge was the cure for impotence in ancient Babylon.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
