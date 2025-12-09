@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The past-tense of the English word “dare” is “durst”
+> When you sneeze, all your bodily functions stop even your heart.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
