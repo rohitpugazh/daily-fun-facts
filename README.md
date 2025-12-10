@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Women blink nearly twice as much as men.
+> A raisin dropped in a glass of fresh champagne will bounce up and down continually from the bottom of the glass to the top.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
