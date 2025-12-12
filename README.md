@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Koala is Aboriginal for "no drink".
+> On average, 100 people choke to death on ballpoint pens every year.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
