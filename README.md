@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Some worms will eat themselves if they can't find any food!
+> It takes about 142.18 licks to reach the center of a Tootsie pop.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
