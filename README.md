@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The average American looks at eight houses before buying one.
+> Mr. Rogers was an ordained minister. 
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
