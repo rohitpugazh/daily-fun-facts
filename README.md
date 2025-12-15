@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> An average human scalp has 100,000 hairs.
+> Shakespeare spelled his OWN name several different ways.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
