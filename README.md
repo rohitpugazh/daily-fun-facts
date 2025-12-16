@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> If you feed a seagull Alka-Seltzer, its stomach will explode.
+> Arnold Schonberg suffered from triskaidecaphobia, the fear of the number 13.  He died at 13 minutes from midnight on Friday the 13th.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
