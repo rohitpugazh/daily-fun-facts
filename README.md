@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_12_16-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_12_17-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Arnold Schonberg suffered from triskaidecaphobia, the fear of the number 13.  He died at 13 minutes from midnight on Friday the 13th.
+> The national anthem of Greece has 158 verses. No one in Greece has memorized all 158 verses.  
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
