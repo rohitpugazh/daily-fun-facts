@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The national anthem of Greece has 158 verses. No one in Greece has memorized all 158 verses.  
+> Jim Henson first coined the word “Muppet”. It is a combination of “marionette” and “puppet.”
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
