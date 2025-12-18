@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The Vatican city registered 0 births in 1983
+> The name for Oz in the "Wizard of Oz" was thought up when the creator, Frank Baum, looked at his filing cabinet and saw A-N, and O-Z; hence the name "OZ."
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
