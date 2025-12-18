@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_12_17-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_12_18-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Jim Henson first coined the word “Muppet”. It is a combination of “marionette” and “puppet.”
+> The Vatican city registered 0 births in 1983
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
