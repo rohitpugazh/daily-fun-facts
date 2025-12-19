@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Paraskevidekatriaphobia means fear of Friday the 13th, which occurs one to three times a year.
+> The male seahorse carries the eggs until they hatch instead of the female.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
