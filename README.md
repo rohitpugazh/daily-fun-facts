@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2025_12_18-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2025_12_19-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> The name for Oz in the "Wizard of Oz" was thought up when the creator, Frank Baum, looked at his filing cabinet and saw A-N, and O-Z; hence the name "OZ."
+> Paraskevidekatriaphobia means fear of Friday the 13th, which occurs one to three times a year.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
