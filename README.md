@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> In the 17th century, the value of pi was known to 35 decimal places. Today, to 1.2411 trillion.
+> Cats’ urine glows under a black light.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
