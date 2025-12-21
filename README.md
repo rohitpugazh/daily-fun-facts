@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> A pig`s orgasm lasts for 30 minutes.
+> Residents of Houston, Texas lead the U.S. in eating out - approximately 4.6 times per week.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
