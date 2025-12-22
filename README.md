@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> A lion in the wild usually makes no more than 20 kills a year.
+> Mel Blanc (the voice of Bugs Bunny) was allergic to carrots.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
