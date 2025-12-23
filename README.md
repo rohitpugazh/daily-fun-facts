@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> On average, 12 newborns will be given to the wrong parents every day.
+> Winston Churchill was born in a ladies room during a dance.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
