@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> CBS` "60 Minutes" is the only TV show without a theme song/music.
+> A family of 26 could go to the movies in Mexico city for the price of one in Tokyo.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
