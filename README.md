@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Sharon Stone was the first Star Search spokes model.
+> Marilyn Monroe had six toes.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
