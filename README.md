@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Every day, 7% of the US eats at McDonald’s.
+> Most toilets flush in E flat.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
