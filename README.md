@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Every time you lick a stamp, you consume 1/10 of a calorie.
+> Only female mosquitoes bite.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
