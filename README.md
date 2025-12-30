@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> No word in the English language rhymes with "MONTH".
+> Mr. Rogers was an ordained Presbyterian minister.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
