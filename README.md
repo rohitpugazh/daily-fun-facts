@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> If you went out into space, you would explode before you suffocated because there`s no air pressure.
+> The most popular first name in the world is Muhammad.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
