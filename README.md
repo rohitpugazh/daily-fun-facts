@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The human body is comprised of 80% water.
+> The letters KGB stand for Komitet Gosudarstvennoy Bezopasnosti.  
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
