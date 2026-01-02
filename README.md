@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> A dime has 118 ridges around the edge. A quarter has 119.
+> "Evaluation and Parameterization of Stability and Safety Performance Characteristics of Two and Three Wheeled Vehicular Toys for Riding." Title of a $230,000 research project proposed by the Department of Health, Education and Welfare, to study the various ways children fall off bicycles.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
