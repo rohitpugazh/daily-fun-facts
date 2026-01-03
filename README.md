@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Of all the words in the English language, the word 'set' has the most definitions!
+> In a test performed by Canadian scientists, using various different styles of music, it was determined that chickens lay the most eggs when pop music was played.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
