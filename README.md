@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The most common street name in the U.S. is Second Street.
+> Daylight Saving Time is not observed in most of the state of Arizona and parts of Indiana.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
