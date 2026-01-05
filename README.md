@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Dolphins sleep with one eye open!
+> The average person spends about two years on the phone in a lifetime.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
