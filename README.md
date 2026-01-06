@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The first owner of the Marlboro company died of lung cancer.
+> On average a hedgehog's heart beats 300 times a minute.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
