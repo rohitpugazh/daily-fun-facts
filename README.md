@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Sir Isaac Newton was only 23 years old when he discovered the law of universal gravitation.
+> There is a town in Newfoundland, Canada called Dildo.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
