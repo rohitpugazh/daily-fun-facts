@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Cats have over 100 vocal sounds; dogs only have 10.
+> It's impossible to sneeze with your eyes open.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
