@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> "Go." is the shortest complete sentence in the English language.
+> 101 Dalmatians, Peter Pan, Lady and the Tramp, and Mulan are the only Disney cartoons where both parents are present and don`t die throughout the movie.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
