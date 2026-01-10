@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The "pound" key on your keyboard (#) is called an octotroph. 
+> One in every 4 Americans has appeared on television.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
