@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Kelsey Grammar sings and plays the piano for the theme song of Fraiser.
+> It`s against the law to doze off under a hair dryer in Florida/against the law to slap an old friend on the back in Georgia/against the law to Play hopscotch on a Sunday in Missouri.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
