@@ -4,9 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The amount of computer Memory required to run WordPerfect for Win95 is 8 times the amount needed aboard the space shuttle.
-
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+> Fun Fact: Did you know that GitHub Actions can automate your life? 🚀
 
 ---
 
