@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_01_12-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_01_13-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Ketchup was sold in the 1830s as medicine.
+> The amount of computer Memory required to run WordPerfect for Win95 is 8 times the amount needed aboard the space shuttle.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
