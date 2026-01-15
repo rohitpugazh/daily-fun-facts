@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Maine is the only state that has borders with only one other state.
+> The penguin is the only bird that can’t fly but can swim.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
