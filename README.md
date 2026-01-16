@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_01_15-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_01_16-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> The penguin is the only bird that can’t fly but can swim.
+> Approximately every seven minutes of every day, someone in an aerobics class pulls their hamstring.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
