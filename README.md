@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Approximately every seven minutes of every day, someone in an aerobics class pulls their hamstring.
+> A “2 by 4" is really 1 1/2 by 3 1/2.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
