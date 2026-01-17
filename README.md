@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> President John F Kennedy could read 4 newspapers in 20 minutes.
+> If you yelled for 8 years, 7 months and 6 days, you will have produced enough sound energy to heat one cup of coffee.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
