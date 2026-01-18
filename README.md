@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The muzzle of a lion is like a fingerprint - no two lions have the same pattern of whiskers.  
+> There are a million ants for every person on Earth.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
