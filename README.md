@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The plastic things on the end of shoelaces are called aglets.
+> In York, it is perfectly legal to shoot a Scotsman with a bow and arrow (except on Sundays)
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
