@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Conception occurs most in the month of December.
+> No word in the English language rhymes with month, orange, silver and purple.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
