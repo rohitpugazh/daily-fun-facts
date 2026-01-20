@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_01_19-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_01_20-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> In York, it is perfectly legal to shoot a Scotsman with a bow and arrow (except on Sundays)
+> Conception occurs most in the month of December.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
