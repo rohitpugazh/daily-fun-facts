@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> 315 entries in Webster’s 1996 dictionary were misspelled.
+> It takes the stomach an hour to break down cows’ milk.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
