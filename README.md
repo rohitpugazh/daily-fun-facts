@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The youngest pope ever was 11 years old.
+> A whale`s penis is called a dork.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
