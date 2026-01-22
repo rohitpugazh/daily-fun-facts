@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_01_21-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_01_22-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> It takes the stomach an hour to break down cows’ milk.
+> The youngest pope ever was 11 years old.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
