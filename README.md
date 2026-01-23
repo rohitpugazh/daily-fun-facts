@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> No word in the English language rhymes with month, orange, silver, or purple.
+> If you have three quarters, four dimes, and four pennies, you have $1.19, the largest amount of money in coins without being able to make change for a dollar.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
