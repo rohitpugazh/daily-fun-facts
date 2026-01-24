@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Barbie's full name is "Babara Millicent Roberts."
+> The pancreas produces Insulin.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
