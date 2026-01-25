@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The most common street name in the U.S. is Second Street.
+> There are more plastic flamingos in the U.S that there are real ones.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
