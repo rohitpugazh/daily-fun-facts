@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The mother of Michael Nesmith of "The Monkees" invented whiteout.
+> American Airlines saved $40,000 in 1987 by eliminating one olive from each salad served in first-class.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
