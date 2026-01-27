@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> A raisin dropped in a glass of fresh champagne will bounce up and down continually from the bottom of the glass to the top.
+> A rat can last longer without water than a camel.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
