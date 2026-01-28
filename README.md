@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> There are 10 human body parts that are only 3 letters long (eye hip arm leg ear toe jaw rib lip gum).
+> On average, 100 people choke to death on ball-point pens every year.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
