@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The Australian $5 to $100 notes are made of plastic.
+> Chinese Crested dogs can get acne. 
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
