@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The Guinness Book of Records holds the record for being the book most often stolen from Libraries.
+> Gabriel, Michael, and Lucifer are the only angels named in the Bible.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
