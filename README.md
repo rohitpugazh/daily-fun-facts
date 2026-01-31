@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The 57 on Heinz ketchup bottles represents the number of varieties of pickles the company once had.
+> Some worms will eat themselves if they can't find any food!
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
