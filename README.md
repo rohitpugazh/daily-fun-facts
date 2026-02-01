@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_01_31-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_02_01-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Some worms will eat themselves if they can't find any food!
+> Celery has negative calories! It takes more calories to eat a piece of celery than the celery has in it.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
