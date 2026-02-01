@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Celery has negative calories! It takes more calories to eat a piece of celery than the celery has in it.
+> For every 'normal' webpage, there are five porn pages.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
