@@ -557,3 +557,4 @@
 2026-01-31 - Some worms will eat themselves if they can't find any food!
 2026-02-01 - Celery has negative calories! It takes more calories to eat a piece of celery than the celery has in it.
 2026-02-01 - For every 'normal' webpage, there are five porn pages.
+2026-02-02 - Between 2 and 3 jockeys are killed each year in horse racing.
