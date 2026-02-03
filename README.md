@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The town of Calma, Chile in the Atacama Desert has never had rain.
+> A “2 by 4" is really 1 1/2 by 3 1/2.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
