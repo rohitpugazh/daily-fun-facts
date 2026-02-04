@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The earth weighs around 6,588,000,000,000,000,000,000,000,000 tons.
+> On average, people fear spiders more than they do death.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
