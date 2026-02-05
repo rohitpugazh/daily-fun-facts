@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Barbie`s measurements, if she were life-size, would be 39-29-33.
+> When possums are playing `possum`, they are not "playing." They actually pass out from sheer terror.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
