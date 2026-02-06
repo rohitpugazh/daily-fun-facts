@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Cuba is the only island in the Caribbean to have a railroad.
+> Pepsi originally contained pepsin, thus the name. 
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
