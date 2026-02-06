@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_02_05-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_02_06-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> When possums are playing `possum`, they are not "playing." They actually pass out from sheer terror.
+> Cuba is the only island in the Caribbean to have a railroad.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
