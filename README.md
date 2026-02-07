@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Most dust particles in your house are made from dead skin!
+> The average shelf-life of a latex condom is about two years.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
