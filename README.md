@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Your stomach produces a new layer of mucus every two weeks so that it doesn’t digest itself.
+> Pearls melt in vinegar.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
