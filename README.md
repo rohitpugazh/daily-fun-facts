@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Negative emotions such as anxiety and depression can weaken your immune system.
+> In Japan, watermelons are squared. It's easier to stack them that way.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
