@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> At the height of its power in 400 BC, the Greek city of Sparta had 25,000 citizens and 500,000 slaves.
+> “The sixth sick sheik’s sixth sheep’s sick” is said to be the toughest tongue twister in English.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
