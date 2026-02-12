@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Between 2 and 3 jockeys are killed each year in horse racing.
+> Dueling is legal in Paraguay as long as both parties are registered blood donors.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
