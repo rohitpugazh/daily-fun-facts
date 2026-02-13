@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> "Almost" is the longest word in the English language with all the letters in alphabetical order.
+> The placement of a donkey's eyes in it’s' heads enables it to see all four feet at all times!
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
