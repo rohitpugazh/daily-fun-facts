@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> A dime has 118 ridges around the edge. A quarter has 119.
+> The Vatican city registered 0 births in 1983
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
