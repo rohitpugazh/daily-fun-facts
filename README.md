@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Any free-moving liquid in outer space will form itself into a sphere, because of its surface tension.
+> A man's beard grows fastest when he anticipates sex.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
