@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Dogs and cats consume over $11 billion worth of pet food a year
+> The most popular first name in the world is Muhammad.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
