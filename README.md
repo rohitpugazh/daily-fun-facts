@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_02_16-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_02_17-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> William Marston engineered one of the earliest forms of the polygraph in the early 1900`s. Later he went on to create the comic strip Wonder Woman, a story about a displaced Amazon princess who forces anyone caught in her magic lasso to tell the truth
+> Dogs and cats consume over $11 billion worth of pet food a year
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
