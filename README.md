@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The katydid bug hears through holes in its hind legs!
+> If we had the same mortality rate now as in 1900, more than half the people in the world today would not be alive.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
