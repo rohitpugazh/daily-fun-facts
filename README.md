@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Babies are born without knee caps. They don't appear until the child reaches 2-6 years of age.
+> There are 269 steps to the top of the Leaning Tower of Pisa
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
