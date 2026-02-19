@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_02_18-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_02_19-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> If we had the same mortality rate now as in 1900, more than half the people in the world today would not be alive.
+> Babies are born without knee caps. They don't appear until the child reaches 2-6 years of age.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
