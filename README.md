@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Some worms will eat themselves if they can't find any food!
+> Like fingerprints, everyone's tongue print is different!
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
