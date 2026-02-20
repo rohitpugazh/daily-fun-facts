@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_02_19-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_02_20-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> There are 269 steps to the top of the Leaning Tower of Pisa
+> Some worms will eat themselves if they can't find any food!
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
