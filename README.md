@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Dr. Jack Kevorkian first patient has Alzheimer`s disease.
+> Dentists have recommended that a toothbrush be kept at least 6 feet away from a toilet to avoid airborne particles resulting from the flush.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
