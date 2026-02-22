@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The longest recorded flight  of a chicken is 13 seconds
+> Columbia University is the second largest landowner in New York City, after the Catholic Church.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
