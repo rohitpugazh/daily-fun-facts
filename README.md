@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Annual growth of WWW traffic is 314,000%
+> Facetious and abstemious contain all the vowels in the correct order, as does arsenious, meaning "containing arsenic."  
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
