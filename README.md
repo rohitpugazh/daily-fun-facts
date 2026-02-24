@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Kuwait is about 60% male (highest in the world). Latvia is about 54% female (highest in the world).
+> The only 15-letter word that can be spelled without repeating a letter is uncopyrightable.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
