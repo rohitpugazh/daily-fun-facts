@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Barbie`s measurements, if she were life-size, would be 39-29-33.
+> Most lipstick contains fish scales!
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
