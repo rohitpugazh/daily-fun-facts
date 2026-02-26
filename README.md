@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The first female guest host of "Saturday Night Live" was Candace Bergen.
+> The average American looks at eight houses before buying one.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
