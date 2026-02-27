@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Alabama was the first state to recognize Christmas as an official holiday.
+> Elvis had a twin brother named Garon, who died at birth, which is why Elvis middle name was Aron.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
