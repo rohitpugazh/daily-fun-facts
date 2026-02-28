@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> `Obsession` is the most popular boat name.
+> In 1386, a pig in France was executed by public hanging for the murder of a child
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
