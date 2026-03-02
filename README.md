@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The verb "cleave" is the only English word with two synonyms which are antonyms of each other: adhere and separate.
+> Every time you lick a stamp, you're consuming 1/10 of a calorie.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
