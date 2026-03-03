@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Your stomach needs to produce a new layer of mucus every two weeks or it would digest itself.
+> King Louis XIX ruled France for 15 minutes.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
