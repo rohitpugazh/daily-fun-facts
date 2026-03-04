@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> There are no words in the dictionary that rhyme with orange, purple, silver and month.
+> Rats multiply so quickly that in 18 months, two rats could have over million descendants.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
