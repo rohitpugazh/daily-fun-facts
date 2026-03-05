@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> In 1980, a Las Vegas hospital suspended workers for betting on when patients would die.
+> The Falkland Isles (pop. about 2000) has over 700000 sheep (350 per person).
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
