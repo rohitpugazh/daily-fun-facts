@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Almonds are a member of the peach family.
+> People say “bless you” when you sneeze because your heart stops for a millisecond.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
