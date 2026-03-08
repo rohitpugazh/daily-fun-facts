@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_03_07-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_03_08-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Bats always turn left when exiting a cave
+> February 1865 is the only month in recorded history not to have a full moon.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
