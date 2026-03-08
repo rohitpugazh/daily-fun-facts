@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> February 1865 is the only month in recorded history not to have a full moon.
+> The only two days of the year in which there are no professional sports games--MLB, NBA, NHL, or NFL--are the day before and the day after the Major League All-Star Game.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
