@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Honey is the only food which does not spoil.
+> Maine is the only state (in USA) whose name is just one syllable. 
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
