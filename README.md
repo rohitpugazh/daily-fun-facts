@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The first bomb the Allies dropped on Berlin in WWII killed the only elephant in the Berlin Zoo.
+> If one places a tiny amount of liquor on a scorpion, it will instantly go mad and sting itself to death.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
