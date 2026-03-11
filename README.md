@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Ramses brand condom is named after the great pharaoh Ramses II who fathered over 160 children.
+> On average, 100 people choke to death on ballpoint pens every year.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
