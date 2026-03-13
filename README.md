@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> You can`t kill yourself by holding your breath.  
+> In the marriage ceremony of the ancient Inca Indians of Peru, the couple was considered officially wed when they took off their sandals and handed them to each other.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
