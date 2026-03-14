@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The San Francisco Cable cars are the only mobile National Monuments
+> 5,840 people with pillow related injuries checked into U.S. emergency rooms in 1992.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
