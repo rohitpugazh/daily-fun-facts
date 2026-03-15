@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_03_14-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_03_15-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> 5,840 people with pillow related injuries checked into U.S. emergency rooms in 1992.
+> The Great Wall of China is the only man-made structure visible from space.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
