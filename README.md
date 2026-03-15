@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The Great Wall of China is the only man-made structure visible from space.
+> Average number of people airborne over the US any given hour: 61,000.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
