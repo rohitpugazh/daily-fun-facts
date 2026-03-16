@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The king of hearts is the only king without a mustache.
+> The 3 most valuable brand names on earth are Marlboro, Coca-Cola, and Budweiser (in that order).
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
