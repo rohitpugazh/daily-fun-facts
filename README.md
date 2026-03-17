@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Columbia University is the second largest landowner in New York City, after the Catholic Church.
+> There is no solid proof of who built the Taj Mahal.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
