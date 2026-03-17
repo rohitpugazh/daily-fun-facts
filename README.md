@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_03_16-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_03_17-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> The 3 most valuable brand names on earth are Marlboro, Coca-Cola, and Budweiser (in that order).
+> Columbia University is the second largest landowner in New York City, after the Catholic Church.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
