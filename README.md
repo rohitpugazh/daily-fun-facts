@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The male seahorse carries the eggs until they hatch instead of the female.
+> Until 1994, world maps and globes sold in Albania only had Albania on them.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
