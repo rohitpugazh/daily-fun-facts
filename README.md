@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Mr. Rogers was an ordained Presbyterian minister.
+> Sex burns 360 calories per hour.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
