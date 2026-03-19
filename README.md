@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_03_18-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_03_19-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Until 1994, world maps and globes sold in Albania only had Albania on them.
+> Mr. Rogers was an ordained Presbyterian minister.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
