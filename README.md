@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> An ostrich’s eye is bigger than its brain.
+> A crocodiles tongue is attached to the roof of its mouth.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
