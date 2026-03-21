@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Tigers have striped skin, not just striped fur.
+> Leonardo da Vinci could write with one hand while drawing with the other
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
