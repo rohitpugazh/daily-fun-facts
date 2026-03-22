@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Rodent's teeth never stop growing.
+> This common everyday occurrence composed of 59% nitrogen, 21% hydrogen, and 9% dioxide is called a `fart`.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
