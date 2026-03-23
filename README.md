@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> A giraffe can clean its ears with its 21-inch tongue!
+> 100% of lottery winners do gain weight
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
