@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Owls are one of the only birds who can see the color blue!
+> The only real person to ever to appear on a pez dispenser was Betsy Ross.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
