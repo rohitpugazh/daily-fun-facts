@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Hot water is heavier than cold.
+> Banging your head against a wall uses 150 calories an hour.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
