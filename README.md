@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Jamaica has the most churches per square mile than any other country in the world.
+> The only nation whose name begins with an "A", but doesn`t end in an "A" is Afghanistan.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
