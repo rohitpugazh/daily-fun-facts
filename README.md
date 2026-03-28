@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Cats have over one hundred vocal sounds, while dogs only have about ten.
+> Some individuals express concern sharing their soap, rightly so, considering 75% of all people wash from top to bottom.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
