@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> "I am." is the shortest complete sentence in the English language.
+> On an American one-dollar bill, there is an owl in the upper left-hand corner of the "1"encased in the "shield" and a spider hidden in the front upper right-hand corner.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
