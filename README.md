@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The average person will accidentally eat just under a pound of insects every year.
+> A polar bears skin is black. Its fur is actually clear, but like snow it appears white.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
