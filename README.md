@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> If one places a tiny amount of liquor on a scorpion, it will instantly go mad and sting itself to death.
+> Elwood Edwards did the voice for the AOL sound files (i.e. “You’ve got Mail!”).
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
