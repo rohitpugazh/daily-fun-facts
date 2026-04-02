@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Annual growth of WWW traffic is 314,000%
+> There are more than 10 million bricks in the Empire State Building.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
