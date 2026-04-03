@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_04_02-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_04_03-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> There are more than 10 million bricks in the Empire State Building.
+> All 50 states are listed across the top of the Lincoln Memorial on the back of the $5 bill.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
