@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> All 50 states are listed across the top of the Lincoln Memorial on the back of the $5 bill.
+> Emus and kangaroos cannot walk backwards, and are on the Australian coat of arms for that reason.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
