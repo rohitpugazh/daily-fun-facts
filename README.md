@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Mr. Rogers is an ordained minister.
+> In England, the Speaker of the House is not allowed to speak. 
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
