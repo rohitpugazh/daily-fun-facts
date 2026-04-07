@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Some individuals express concern sharing their soap, rightly so, considering 75% of all people wash from top to bottom.
+> Q is the only letter in the alphabet that does not appear in the name of any of the United States!
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
