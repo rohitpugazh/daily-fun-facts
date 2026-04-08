@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_04_07-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_04_08-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Q is the only letter in the alphabet that does not appear in the name of any of the United States!
+> Ninety percent of all species that have become extinct have been birds.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
