@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Emus and kangaroos cannot walk backwards, and are on the Australian coat of arms for that reason.
+> In Aspen Colorado, you can have a maximum income of $104,000 and still receive government subsidized housing.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
