@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_04_08-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_04_09-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> A skunk's smell can be detected by a human a mile away.
+> Emus and kangaroos cannot walk backwards, and are on the Australian coat of arms for that reason.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
