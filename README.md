@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> An Olympic gold medal must contain 92.5 percent silver
+> Buckingham Palace in England has over six hundred rooms.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
