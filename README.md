@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> 3.6 cans of Spam are consumed each second.
+> Pamela Anderson Lee is Canada`s Centennial Baby, being the first baby born on the centennial anniversary of Canada`s independence.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
