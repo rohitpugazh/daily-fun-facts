@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> 40% of all people who come to a party in your home snoop in your medicine cabinet
+> Some worms will eat themselves if they can't find any food!
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
