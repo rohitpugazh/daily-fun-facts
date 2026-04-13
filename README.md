@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The official beverage of Ohio is tomato juice.
+> In the 1980`s American migraines increased by 60%.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
