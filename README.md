@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_04_12-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_04_13-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Some worms will eat themselves if they can't find any food!
+> The official beverage of Ohio is tomato juice.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
