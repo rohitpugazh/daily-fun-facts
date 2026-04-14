@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> In Miconesia, coins are 12 feet across.
+> Nearly 80% of all animals on earth have six legs.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
