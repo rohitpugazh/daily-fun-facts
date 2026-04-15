@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Lorne Greene had one of his nipples bitten off by an alligator while he was host of "Lorne Greene`s Wild Kingdom."
+> In Iceland, a Big Mac costs $5.50.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
