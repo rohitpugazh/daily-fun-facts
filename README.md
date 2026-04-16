@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Rats and horses can’t vomit.
+> 98% of Japanese are cremated.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
