@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> 1 in 5 of the world's doctors are Russian.
+> The king of hearts is the only king without a mustache.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
