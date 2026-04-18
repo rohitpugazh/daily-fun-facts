@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Cats have over one hundred vocal sounds, while dogs only have about ten.
+> Porcupines can float in water.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
