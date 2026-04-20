@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> A crocodiles tongue is attached to the roof of its mouth.
+> The Main Library at Indiana University sinks over an inch every year because when it was built, engineers failed to take into account the weight of all the books that would occupy the building.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
