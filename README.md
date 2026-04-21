@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_04_20-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_04_21-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> The Main Library at Indiana University sinks over an inch every year because when it was built, engineers failed to take into account the weight of all the books that would occupy the building.
+> The eyes of a donkey are positioned so that it can see all four feet at all times.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
