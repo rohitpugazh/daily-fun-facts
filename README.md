@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_04_21-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_04_22-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> The word "set" has more definitions than any other word in the English language.
+> In York, it is perfectly legal to shoot a Scotsman with a bow and arrow (except on Sundays)
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
