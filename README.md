@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Prince Charles and Prince William never travel on the same airplane in case there is a crash.
+> Reindeer like to eat bananas.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
