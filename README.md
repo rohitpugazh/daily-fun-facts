@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> A man will ejaculate approximately 18 quarts of semen in his lifetime.
+> Ketchup was sold in the 1830s as medicine.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
