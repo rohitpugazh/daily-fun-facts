@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The first bomb the Allies dropped on Berlin in WWII killed the only elephant in the Berlin Zoo.
+> Length of beard an average man would grow if he never shaved 27.5 feet
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
