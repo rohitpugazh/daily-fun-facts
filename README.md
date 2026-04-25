@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_04_24-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_04_25-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Ketchup was sold in the 1830s as medicine.
+> The first bomb the Allies dropped on Berlin in WWII killed the only elephant in the Berlin Zoo.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
