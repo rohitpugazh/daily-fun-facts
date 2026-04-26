@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Dogs and cats consume over $11 billion worth of pet food a year
+> The average cough comes out of your mouth at 60 miles (96.5 km) per hour.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
