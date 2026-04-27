@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The state of Florida is bigger than England!
+> A palindrome is a sentence or group of sentences that reads the same backwards as it does forward: Ex:  `Red rum, sir, is murder.` `Ma is as selfless as I am.` `Nurse, I spy gypsies. Run!`  `A man, a plan, a canal - Panama.` `He lived as a devil, eh?`
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
