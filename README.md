@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> At the height of its power in 400 BC, the Greek city of Sparta had 25,000 citizens and 500,000 slaves.
+> The giant squid has the largest eyes in the world. 
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
