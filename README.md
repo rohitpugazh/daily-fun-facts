@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Valentine Tapley from Pike County, Missouri  grew chin whiskers attaining a length of twelve feet six inches from 1860 until his death 1910, protesting Abraham Lincoln`s election to the presidency.
+> “Ithyphallophobia" is a morbid fear of seeing, thinking about or having an erect penis.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
