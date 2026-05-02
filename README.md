@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Our eyes are always the same size from birth but our nose and ears never stop growing.
+> Your heart beats over 100,000 times a day!
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
