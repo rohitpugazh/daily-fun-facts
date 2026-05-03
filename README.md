@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Sherlock Holmes NEVER said, "Elementary, my dear Watson."
+> Meteorologists claim they`re right 85% of the time (think about that one!)
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
