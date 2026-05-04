@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> In ancient Rome, when a man testified in court he would swear on his testicles.
+> The average person falls asleep in seven minutes.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
