@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> An ostrich’s eye is bigger than its brain.
+> You can be fined up to $1,000 for whistling on Sunday in Salt Lake City, Utah.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
