@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_05_04-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_05_05-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> The average person falls asleep in seven minutes.
+> An ostrich’s eye is bigger than its brain.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
