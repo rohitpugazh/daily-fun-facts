@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_05_05-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_05_06-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> You can be fined up to $1,000 for whistling on Sunday in Salt Lake City, Utah.
+> Walt Disney holds the world record for the most Academy Awards won by one person, he has won twenty statuettes, and twelve other plaques and certificates
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
