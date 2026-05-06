@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Walt Disney holds the world record for the most Academy Awards won by one person, he has won twenty statuettes, and twelve other plaques and certificates
+> They NEVER said “Beam me up, Scotty” on Star Trek.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
