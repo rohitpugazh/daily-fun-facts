@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> In the marriage ceremony of the ancient Inca Indians of Peru, the couple was considered officially wed when they took off their sandals and handed them to each other.
+> The value of Pi will be officially "rounded down" to 3.14 from 3.14159265359 on December 31, 1999.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
