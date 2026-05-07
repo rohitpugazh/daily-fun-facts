@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_05_06-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_05_07-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> They NEVER said “Beam me up, Scotty” on Star Trek.
+> In the marriage ceremony of the ancient Inca Indians of Peru, the couple was considered officially wed when they took off their sandals and handed them to each other.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
