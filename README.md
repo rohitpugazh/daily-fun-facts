@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Weatherman Willard Scott was the first original Ronald McDonald.
+> There are over 58 million dogs in the US
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
