@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_05_08-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_05_09-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> There are over 58 million dogs in the US
+> The youngest pope ever was 11 years old.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
