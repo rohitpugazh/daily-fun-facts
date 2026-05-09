@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The youngest pope ever was 11 years old.
+> Adolf Hitler was a vegetarian, and had only ONE testicle.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
