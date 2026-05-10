@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The average talker sprays about 300 microscopic saliva droplets per minute, about 2.5 droplets per word.
+> The Automated Teller Machine (ATM) was introduced in England in 1965.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
