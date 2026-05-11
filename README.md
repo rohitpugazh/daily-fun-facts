@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Dr. Seuss pronounced his name “soyce”.
+> A word or sentence that is the same front and back (racecar, kayak) is called a “palindrome”.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 

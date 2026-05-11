@@ -753,3 +753,4 @@
 2026-05-10 - The average talker sprays about 300 microscopic saliva droplets per minute, about 2.5 droplets per word.
 2026-05-10 - The Automated Teller Machine (ATM) was introduced in England in 1965.
 2026-05-11 - Dr. Seuss pronounced his name “soyce”.
+2026-05-11 - A word or sentence that is the same front and back (racecar, kayak) is called a “palindrome”.
