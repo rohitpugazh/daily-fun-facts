@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Pinocchio is Italian for "pine head."
+> The `Golden Arches` of fast food chain McDonalds is more recognized worldwide than the religious cross of Christianity.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
