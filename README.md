@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> There is a hotel in Sweden built entirely out of ice; it is rebuilt every year.
+> Over 60% of all those who marry get divorced.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
