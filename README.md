@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Americans on average eat 18 acres of pizza every day.
+> “Duff” is the decaying organic matter found on a forest floor.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
