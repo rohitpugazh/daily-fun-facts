@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Golf courses cover 4% of North America.
+>  was Harrison Ford`s idea so that he could take a bathroom break.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
