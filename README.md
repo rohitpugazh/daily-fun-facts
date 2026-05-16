@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The most common name in Italy is Mario Rossi.
+> The average person laughs 10 times a day!
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
