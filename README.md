@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Nevada is the driest state in the U.S.. Each year it averages 7.5 inches (19 cm) of rain.
+> The average person spends 6 months of their life sitting at red lights.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
