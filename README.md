@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Thirty-five percent of people who use personal ads for dating are already married.
+> The first streetlights in America were installed in Philadelphia around 1757.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
