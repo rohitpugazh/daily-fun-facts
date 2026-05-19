@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Intelligent people have more zinc and copper in their hair.
+> The first owner of the Marlboro company died of lung cancer.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
