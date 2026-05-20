@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_05_19-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_05_20-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> The first owner of the Marlboro company died of lung cancer.
+> On a Canadian two-dollar bill, the American flag is flying over the Parliament Building.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
