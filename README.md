@@ -4,7 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Fun Fact: Did you know that GitHub Actions can automate your life? 🚀
+> A cow gives nearly 200,000 glasses of milk in her lifetime.
+
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
