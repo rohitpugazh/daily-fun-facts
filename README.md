@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_05_21-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_05_22-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> A cow gives nearly 200,000 glasses of milk in her lifetime.
+> A skunk's smell can be detected by a human a mile away.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
