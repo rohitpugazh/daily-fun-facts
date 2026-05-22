@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> A skunk's smell can be detected by a human a mile away.
+> There were 240 pedestrian fatalities in New York City in 1994.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
