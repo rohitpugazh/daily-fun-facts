@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The first bomb the Allies dropped on Berlin in WWII killed the only elephant in the Berlin Zoo.
+> "Dreamt" is the only English word that ends in the letters "mt."
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
