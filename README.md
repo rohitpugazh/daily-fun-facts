@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_05_23-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_05_24-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> "Dreamt" is the only English word that ends in the letters "mt."
+> Donald Duck comics were banned from Finland because he doesn`t wear pants!
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
