@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Donald Duck comics were banned from Finland because he doesn`t wear pants!
+> Cats urine glows under a black light.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
