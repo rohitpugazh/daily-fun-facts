@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_05_24-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_05_25-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Cats urine glows under a black light.
+> Iceland consumes more Coca-Cola per capita than any other nation.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
