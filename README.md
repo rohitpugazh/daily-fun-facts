@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Iceland consumes more Coca-Cola per capita than any other nation.
+> Tigers not only have striped fur, they have striped skin!
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
