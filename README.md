@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_05_27-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_05_28-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> A shark can detect one part of blood in 100 million parts of water.
+> Hong Kong holds the most Rolls Royce’s per capita.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
