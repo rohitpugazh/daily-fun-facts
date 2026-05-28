@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Hong Kong holds the most Rolls Royce’s per capita.
+> CBS` "60 Minutes" is the only TV show without a theme song/music.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
