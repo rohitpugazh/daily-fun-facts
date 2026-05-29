@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Sweden has the least number of murders annually.
+> Switzerland is the only country with a square flag.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
