@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Human thighbones are stronger than concrete.
+> In America you will see an average of 500 advertisements a day.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
