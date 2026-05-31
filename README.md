@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> If you yelled for 8 years, 7 months and 6 days, you will have produced enough sound energy to heat one cup of coffee.
+> Only one person in two billion will live to be 116 or older.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
