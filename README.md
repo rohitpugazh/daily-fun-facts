@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_05_31-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_06_01-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Only one person in two billion will live to be 116 or older.
+> Rape is reported every six minutes in the U.S.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
