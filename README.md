@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Rape is reported every six minutes in the U.S.
+> Facetious and abstemious contain all the vowels in the correct order, as does arsenious, meaning "containing arsenic."  
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
