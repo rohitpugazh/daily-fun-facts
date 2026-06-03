@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> 5,840 people with pillow related injuries checked into U.S. emergency rooms in 1992.
+> There are 45 miles of nerves in the skin of a human being.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
