@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_06_03-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_06_04-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> There are 45 miles of nerves in the skin of a human being.
+> The Earth experiences 50,000 Earth quakes per year and is hit by Lightning 100 times a second.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
