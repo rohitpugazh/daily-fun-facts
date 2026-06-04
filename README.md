@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The Earth experiences 50,000 Earth quakes per year and is hit by Lightning 100 times a second.
+> “The sixth sick sheik’s sixth sheep’s sick” is said to be the toughest tongue twister in English.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
