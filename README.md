@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Someone paid $14,000 for the bra worn by Marilyn Monroe in the film 'Some Like It Hot'.
+> The first episode of "Joanie Loves Chachi" was the highest rated American program in the history of Korean television, a country where "Chachi" translates to "penis".  
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
