@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The airplane Buddy Holly died in was the "American Pie." (Thus the name of the Don McLean song.)
+> 3.9% of all women do not wear underwear.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
