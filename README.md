@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The Earth experiences 50,000 Earth quakes per year and is hit by Lightning 100 times a second.
+> Firehouses have circular stairways originating from the old days when the engines were pulled by horses. The horses were stabled on the ground floor and figured out how to walk up straight staircases.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
