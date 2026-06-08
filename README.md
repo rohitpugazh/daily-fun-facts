@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The first song played on Armed Forces Radio during operation Desert Shield was "Rock the Casba" by the Clash.
+> The first CD pressed in the US was Bruce Springsteen's "Born in the USA."
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
