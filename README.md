@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_06_07-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_06_08-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Firehouses have circular stairways originating from the old days when the engines were pulled by horses. The horses were stabled on the ground floor and figured out how to walk up straight staircases.
+> The first song played on Armed Forces Radio during operation Desert Shield was "Rock the Casba" by the Clash.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
