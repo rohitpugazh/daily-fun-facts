@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_06_08-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_06_09-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> The first CD pressed in the US was Bruce Springsteen's "Born in the USA."
+> Starfish have no brains.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
