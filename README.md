@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Starfish have no brains.
+> Bats always turn left when exiting a cave
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
