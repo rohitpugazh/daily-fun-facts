@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The pancreas produces Insulin.
+> Pearls melt in vinegar.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
