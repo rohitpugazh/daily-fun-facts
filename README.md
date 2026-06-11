@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Reindeer like to eat bananas.
+> No word in the English language rhymes with month, orange, silver, or purple.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
