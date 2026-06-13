@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> In Disney`s Fantasia, the Sorcerer`s name is "Yensid" (Disney backwards.)
+> In Miconesia, coins are 12 feet across.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
