@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> On average a hedgehog's heart beats 300 times a minute.
+> Some individuals express concern sharing their soap, rightly so, considering 75% of all people wash from top to bottom.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
