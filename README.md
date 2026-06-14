@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_06_13-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_06_14-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> In Miconesia, coins are 12 feet across.
+> On average a hedgehog's heart beats 300 times a minute.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
