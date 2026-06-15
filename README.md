@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Grapes explode when you put them in the microwave. Go on, try it then
+> 400-quarter pounders can be made from 1 cow.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
