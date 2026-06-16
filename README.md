@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Canada makes up 6.67 percent of the Earth`s land area
+> Elvis had a twin brother named Garon, who died at birth, which is why Elvis middle name was Aron.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
