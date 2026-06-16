@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_06_15-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_06_16-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> 400-quarter pounders can be made from 1 cow.
+> Canada makes up 6.67 percent of the Earth`s land area
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
