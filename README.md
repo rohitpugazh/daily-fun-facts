@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_06_16-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_06_17-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Elvis had a twin brother named Garon, who died at birth, which is why Elvis middle name was Aron.
+> Peter Falk, who played "Columbo," has a glass eye.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
