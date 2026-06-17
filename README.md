@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Peter Falk, who played "Columbo," has a glass eye.
+> During his entire life, Vincent Van Gogh sold exactly one painting, “Red Vineyard at Arles”.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
