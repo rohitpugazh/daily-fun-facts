@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
->  was Harrison Ford`s idea so that he could take a bathroom break.
+> The human heart creates enough pressure in the bloodstream to squirt blood 30 feet.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
