@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Humphrey Bogart NEVER said “Play it again, Sam” in Casablanca
+> Elephants are the only animals that can`t jump.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
