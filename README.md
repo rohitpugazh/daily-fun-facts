@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The Nullarbor Plain of Australia covers 100,000 square miles (160,900 km) without a tree.
+> Al Capone`s business card said he was a used furniture dealer.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
