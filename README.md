@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The average person spends about two years on the phone in a lifetime.
+> Peter Falk, who played "Columbo," has a glass eye.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
