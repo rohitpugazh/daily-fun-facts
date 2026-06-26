@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_06_25-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_06_26-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Peter Falk, who played "Columbo," has a glass eye.
+> The longest one-syllable word in the English language is "screeched." 
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
