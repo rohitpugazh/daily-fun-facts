@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Coconuts kill about 150 people each year. That’s more than sharks.
+> The only capital letter in the Roman alphabet with exactly one end point is P. 
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
