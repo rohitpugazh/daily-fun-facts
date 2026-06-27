@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_06_26-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_06_27-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> The name Wendy was made up for the book "Peter Pan."
+> Coconuts kill about 150 people each year. That’s more than sharks.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
