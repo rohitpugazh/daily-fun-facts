@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Thirty-five percent of the people who use personal ads for dating are already married.
+> More than 90% of the Nicaraguan people are Roman Catholic.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
