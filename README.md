@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> A signature is called a John Hancock because he signed the Declaration of Independence. Only 2 people signed the declaration of independence on July 4. The Last person signed 2 years later.
+> A cow gives nearly 200,000 glasses of milk in her lifetime.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
