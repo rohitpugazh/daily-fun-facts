@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_06_28-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_06_29-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> More than 90% of the Nicaraguan people are Roman Catholic.
+> A signature is called a John Hancock because he signed the Declaration of Independence. Only 2 people signed the declaration of independence on July 4. The Last person signed 2 years later.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
