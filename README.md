@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Coca-Cola contained Coca (whose active ingredient is cocaine) from 1885 to 1903.
+> Most lipstick contains fish scales!
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
