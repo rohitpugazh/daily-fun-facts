@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_06_29-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_06_30-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> A cow gives nearly 200,000 glasses of milk in her lifetime.
+> Coca-Cola contained Coca (whose active ingredient is cocaine) from 1885 to 1903.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
