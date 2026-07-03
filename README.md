@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Tigers have striped skin, not just striped fur.
+> The giant red star Betelgeuse has a diameter larger than that of the Earth's orbit around the sun. 
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
