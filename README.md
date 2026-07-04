@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The word "samba" means "to rub navels together."
+> The muzzle of a lion is like a fingerprint - no two lions have the same pattern of whiskers.  
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
