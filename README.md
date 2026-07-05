@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Fictional/horror writer Stephen King sleeps with a nearby light on to calm his fear of the dark. 
+> Vatican City is the smallest country in the world, with a population of 1000 and just 108.7 acres.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
