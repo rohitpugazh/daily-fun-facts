@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Two-thirds of the world’s eggplant is grown in New Jersey.
+> `Stewardesses` is the longest word that is typed with only the left hand.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
