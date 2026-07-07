@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The average North American will eat 35,000 cookies during their life span.
+> The US has more personal computers than the next 7 countries combined.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
