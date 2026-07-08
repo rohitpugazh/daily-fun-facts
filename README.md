@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Mel Blanc (the voice of Bugs Bunny) was allergic to carrots.
+> The name Jeep came from the abbreviation used in the army. G.P. for `General Purpose` vehicle.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
