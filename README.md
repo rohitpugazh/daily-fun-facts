@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_07_07-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_07_08-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> The US has more personal computers than the next 7 countries combined.
+> Mel Blanc (the voice of Bugs Bunny) was allergic to carrots.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
