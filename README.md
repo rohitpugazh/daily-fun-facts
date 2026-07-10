@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Koala is Aboriginal for "no drink".
+> A crocodiles tongue is attached to the roof of its mouth.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
