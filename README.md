@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Owls are one of the only birds who can see the color blue!
+> Because metal was scarce, the Oscars given out during World War II were made of wood.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
