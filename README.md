@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> To "testify" was based on men in the Roman court swearing to a statement made by swearing on their testicles.
+> The mother of Michael Nesmith of "The Monkees" invented whiteout.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
