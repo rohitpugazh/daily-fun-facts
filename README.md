@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> In Japan, watermelons are squared. It's easier to stack them that way.
+> An average human loses about 200 head hairs per day.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
