@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> An ostrich`s eye is bigger than its brain.  
+> Almonds are members of the peach family.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
