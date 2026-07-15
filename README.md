@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Czechs are the biggest consumers of beer per male in the world.
+> The storage capacity of human brain exceeds 4 Terabytes.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
