@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> One in every 9000 people is an albino.
+> A honeybee can fly at fifteen miles per hour.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
