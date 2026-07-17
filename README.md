@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The characters Bert and Ernie on Sesame Street were named after Bert the cop and Ernie the taxi driver in Frank Capra`s "Its A Wonderful Life."
+> Columbia University is the second largest landowner in New York City, after the Catholic Church.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
