@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Icelanders consume more Coca-Cola per Capita than any other nation.
+> Odds of being killed by lightening? 1 in 2million/killed in a car crash? 1 in 5,000/killed by falling out of bed? 1 in 2million/killed in a plane crash? 1 in 25 million.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
