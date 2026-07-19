@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> On average, Americans eat 18 acres of pizza everyday.
+> Someone paid $14,000 for the bra worn by Marilyn Monroe in the film 'Some Like It Hot'.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
