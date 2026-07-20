@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_07_19-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_07_20-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Someone paid $14,000 for the bra worn by Marilyn Monroe in the film 'Some Like It Hot'.
+> A man will ejaculate approximately 18 quarts of semen in his lifetime.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
