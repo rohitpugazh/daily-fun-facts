@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> A man will ejaculate approximately 18 quarts of semen in his lifetime.
+> Almonds are a member of the peach family.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
