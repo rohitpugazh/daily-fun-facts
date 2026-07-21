@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> In Quebec, there is an old law that states margarine must be a different color than butter.
+> Dr. Jack Kevorkian first patient has Alzheimer`s disease.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
