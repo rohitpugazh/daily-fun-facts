@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Half of all bank robberies take place on a Friday.
+> In Vermont, the ratio of cows to people is 10:1
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
