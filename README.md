@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The Eisenhower interstate system requires that one mile in every five must be straight in case of war or emergency, they could be used as airstrips.
+> While in Alcatraz, Al Capone was inmate #85.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
