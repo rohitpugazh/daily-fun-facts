@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The human heart creates enough pressure to squirt blood 30ft.
+> Rodent's teeth never stop growing.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
