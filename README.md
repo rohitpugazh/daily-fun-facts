@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Rubber bands last longer when refrigerated.  
+> the bird is the word
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](A fat guy)
 
 ---
 
