@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> A rat can last longer without water than a camel.
+> Babies are born without knee caps. They don't appear until the child reaches 2-6 years of age.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
