@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The letters KGB stand for Komitet Gosudarstvennoy Bezopasnosti.  
+> One quarter of the bones in your body, are in your feet!
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
