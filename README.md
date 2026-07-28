@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The muzzle of a lion is like a fingerprint - no two lions have the same pattern of whiskers.  
+> An average human loses about 200 head hairs per day.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
