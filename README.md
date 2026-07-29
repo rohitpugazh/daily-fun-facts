@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The world's youngest parents were 8 and 9 and lived in China in 1910.
+> February 1865 is the only month in recorded history not to have a full moon.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
