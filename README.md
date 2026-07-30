@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Crocodiles and alligators are surprisingly fast on land.  Although they are rapid, they are not agile.  So, if being chased by one, run in a zigzag line to lose him or her.
+> Present population of 5 billion plus people of the world is predicted to become 15 billion by 2080.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
