@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Leonardo da Vinci could write with one hand while drawing with the other
+> Astronaut Neil Armstrong first stepped on the moon with his left foot.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
