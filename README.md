@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_08_01-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_08_02-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> This common everyday occurrence composed of 59% nitrogen, 21% hydrogen, and 9% dioxide is called a `fart`.
+> Leonardo da Vinci could write with one hand while drawing with the other
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
