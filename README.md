@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> It’s estimated that at any one time around 0.7% of the world’s population is drunk.
+> King Louis XIX ruled France for 15 minutes.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
