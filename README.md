@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Tigers have striped skin, not just striped fur.
+> More than 50% of the people in the world have never made or received a telephone call.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
