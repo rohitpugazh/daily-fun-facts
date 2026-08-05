@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The word "dexter" whose meaning refers to the right hand is typed with only the left hand.  
+> A healthy (non-colorblind) human eye can distinguish between 500 shades of gray.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
