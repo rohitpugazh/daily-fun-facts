@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The only 15-letter word that can be spelled without repeating a letter is uncopyrightable.
+> An ostrich’s eye is bigger than its brain.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
