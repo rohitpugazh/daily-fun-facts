@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The name Jeep came from the abbreviation used in the army. G.P. for `General Purpose` vehicle.
+> The crack of a whip is actually a tiny sonic boom, since the tip breaks the sound barrier.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
