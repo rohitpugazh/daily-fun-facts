@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> California has issued 6 drivers licenses to people named "Jesus Christ."
+> The longest one-syllable word in the English language is "screeched." 
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
