@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The word "samba" means "to rub navels together."
+> The original story from "Tales of 1001 Arabian Nights" begins, "Aladdin was a little Chinese boy." 
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
