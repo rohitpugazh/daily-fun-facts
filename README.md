@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Los Angeles` full name `El Pueblo de Nuestra Senora la Reina de Los Angeles de Porciuncula` is reduced to 3.63% of its size in the abbreviation `L.A.`.
+> Average number of days a West German goes without washing his underwear: 7
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
