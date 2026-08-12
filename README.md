@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Barbie`s full name is Barbara Millicent Roberts.
+> Only 6 people in the whole world have died from moshing.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
