@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> You can be fined up to $1,000 for whistling on Sunday in Salt Lake City, Utah.
+> It's possible to lead a cow upstairs...but not downstairs.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
