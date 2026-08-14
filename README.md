@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The citrus soda 7-UP was created in 1929; `7` was selected after the original 7-ounce containers and `UP` for the direction of the bubbles.
+> 40% of all people who come to a party in your home snoop in your medicine cabinet
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
