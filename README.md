@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Because metal was scarce, the Oscars given out during World War II were made of wood.
+> In the last 3,500 years, there have been approximately 230 years of peace throughout the civilized world.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
