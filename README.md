@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The word "samba" means "to rub navels together."
+> "You" is the second most spoken English word
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
