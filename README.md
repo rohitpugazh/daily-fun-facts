@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_08_16-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_08_17-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> "You" is the second most spoken English word
+> Ninety percent of all species that have become extinct have been birds.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
