@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Ninety percent of all species that have become extinct have been birds.
+> A chameleon's tongue is twice the length of its body.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
