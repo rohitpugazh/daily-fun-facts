@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Australian soldiers used the song "We're Off to See the Wizard" as a marching song in WWII.
+> The U.S. Post Office handles 43 percent of the world’s mail.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
