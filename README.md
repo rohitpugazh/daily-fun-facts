@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Sweden has the least number of murders annually.
+> The giant red star Betelgeuse has a diameter larger than that of the Earth's orbit around the sun. 
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
