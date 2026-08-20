@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The male seahorse carries the eggs until they hatch instead of the female.
+> Al Capone’s business card said he was a used furniture dealer.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
