@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Camel’s have three eyelids.
+> The number "four" is considered unlucky in Japan because it is pronounced the same as "death".
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
