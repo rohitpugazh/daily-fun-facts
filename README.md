@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> You can be fined up to $1,000 for whistling on Sunday in Salt Lake City, Utah.
+> The average person falls asleep in seven minutes.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
