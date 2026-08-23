@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The average American works 24,000 hours in their lifetime just to pay their taxes
+> Paraskevidekatriaphobia means fear of Friday the 13th, which occurs one to three times a year.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
