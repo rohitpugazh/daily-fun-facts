@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The sweat drops drawn in cartoon comic strips are called pleuts.
+> Nearly 80% of all animals on earth have six legs.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
