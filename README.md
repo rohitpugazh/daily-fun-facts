@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The catfish has over 27000 taste buds (more than any other animal)
+> The Michelin man is known as Mr. Bib. His name was Bibendum in the company’s first ads in 1896.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
