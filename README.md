@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> In ancient Greece "idiot" meant a private citizen or layman.
+> India has a Bill of Rights for cows.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
