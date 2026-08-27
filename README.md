@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_08_26-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_08_27-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Shakespeare is quoted 33,150 times in the Oxford English dictionary.
+> In ancient Greece "idiot" meant a private citizen or layman.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
