@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The average chocolate bar has 8 insects' legs in it.
+> Bruce Lee was so fast that they had to slow the film down so you could see his moves.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
