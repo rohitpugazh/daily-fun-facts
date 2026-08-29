@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Most toilets flush in E flat.
+> The Declaration of Independence was written on hemp (marijuana) paper.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
