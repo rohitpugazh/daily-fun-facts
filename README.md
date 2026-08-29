@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The Declaration of Independence was written on hemp (marijuana) paper.
+> You share your birthday with at least 9 million other people in the world.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
