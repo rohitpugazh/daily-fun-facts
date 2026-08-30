@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Sherlock Holmes NEVER said “Elementary, my dear Watson”
+> Slugs have four noses.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
