@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The “spot” on the 7-Up logo comes from its inventor who had red eyes. He was an albino.
+> The U.S. city with the highest rate of lightning strikes per capita is Clearwater, Florida.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
