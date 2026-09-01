@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Stephen Hawking was born exactly 300 years after Galileo died.
+> The “spot” on the 7-Up logo comes from its inventor who had red eyes. He was an albino.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
