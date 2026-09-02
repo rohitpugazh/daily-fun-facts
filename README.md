@@ -1,10 +1,10 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_09_01-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_09_02-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> The U.S. city with the highest rate of lightning strikes per capita is Clearwater, Florida.
+> Bruce Lee was so fast that they actually had to s-l-o-w film down so you could see his moves.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
