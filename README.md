@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Bruce Lee was so fast that they actually had to s-l-o-w film down so you could see his moves.
+> In 1984, a Canadian farmer began renting advertising space on his cows.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
