@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> "Dreamt" is the only English word that ends in the letters "mt." 
+> Ingrown toenails are hereditary.  
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
