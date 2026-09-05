@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> One quarter of the bones in your body are in your feet.
+> An ant always falls over on its right side when intoxicated.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
