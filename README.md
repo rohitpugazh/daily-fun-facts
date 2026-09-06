@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The Falkland Isles (pop. about 2000) has over 700000 sheep (350 per person).
+> A full-loaded supertanker traveling at normal speed takes at least 20 minutes to stop.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
