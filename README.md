@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> 40,000 Americans are injured by toilets each year.
+> The Bible, the world's best-selling book, is also the world's most shoplifted book.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
