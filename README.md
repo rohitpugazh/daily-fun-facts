@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The first CD pressed in the US was Bruce Springsteen`s `Born in the USA`
+> The longest word comprised of one row on the keyboard is: TYPEWRITER
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
