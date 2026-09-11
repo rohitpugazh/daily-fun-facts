@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The Simpsons is the longest running animated series on TV.
+> A giraffe can clean its ears with its 21-inch tongue!
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
