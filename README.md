@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Celery has negative calories! It takes more calories to eat a piece of celery than the celery has in it.
+> $203,000,000 is spent on barbed wire each year in the U.S.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
