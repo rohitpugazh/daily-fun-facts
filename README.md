@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Mike Nesmith`s (the guitarist of The Monkeys) mom invented White Out.
+> There are no words in the dictionary that rhyme with orange, purple, silver and month.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
