@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> In Bangladesh, kids as young as 15 can be jailed for cheating on their finals!
+> On an American one-dollar bill, there is an owl in the upper left-hand corner of the "1"encased in the "shield" and a spider hidden in the front upper right-hand corner.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
