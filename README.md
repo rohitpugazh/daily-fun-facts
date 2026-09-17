@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> In America you will see an average of 500 advertisements a day.
+> Astronaut Neil Armstrong first stepped on the moon with his left foot.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
