@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Daffy Duck`s middle name is "Dumas"
+> Sweden has the least number of murders annually.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
