@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Half of all Americans live within 50 miles of their birthplace.
+> Caesar salad has nothing to do with any of the Caesars. It was first concocted in a bar in Tijuana, Mexico, in the 1920`s.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
