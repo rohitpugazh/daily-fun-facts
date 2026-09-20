@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_09_19-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_09_20-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Caesar salad has nothing to do with any of the Caesars. It was first concocted in a bar in Tijuana, Mexico, in the 1920`s.
+> Sigmund Freud had a morbid fear of ferns.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
