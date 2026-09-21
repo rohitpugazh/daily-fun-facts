@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Elwood Edwards did the voice for the AOL sound files (i.e. “You’ve got Mail!”).
+> The male gypsy moth can "smell" the virgin female gypsy moth from 1.8 miles away.  
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
