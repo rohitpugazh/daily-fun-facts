@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_09_20-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_09_21-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> THE MOST UNUSUAL CANNONBALL: On two occasions, Miss `Rita Thunderbird` remained inside the cannon despite a lot of gunpowder encouragement to do otherwise. She performed in a gold lamé bikini and on one of the two occasions (1977) Miss Thunderbird remained lodged in the cannon, while her bra was shot across the Thames River.
+> Elwood Edwards did the voice for the AOL sound files (i.e. “You’ve got Mail!”).
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
