@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Your ribs move about 5 million times a year, every time you breathe!
+> The top 3 health-related searches on the Internet are (in this order): Depression, Allergies, & Cancer.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
