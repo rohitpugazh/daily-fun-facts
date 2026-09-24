@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The giant red star Betelgeuse has a diameter larger than that of the Earth's orbit around the sun. 
+> Your stomach has to produce a new layer of mucus every 2 weeks otherwise it will digest itself.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
