@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Babies are born without knee caps. They don't appear until the child reaches 2-6 years of age.
+> It`s against the law to doze off under a hair dryer in Florida/against the law to slap an old friend on the back in Georgia/against the law to Play hopscotch on a Sunday in Missouri.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
