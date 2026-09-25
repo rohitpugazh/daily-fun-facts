@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_09_24-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_09_25-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Your stomach has to produce a new layer of mucus every 2 weeks otherwise it will digest itself.
+> Babies are born without knee caps. They don't appear until the child reaches 2-6 years of age.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
