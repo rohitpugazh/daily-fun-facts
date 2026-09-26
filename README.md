@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Rats and horses can’t vomit.
+> Bruce Lee was so fast that they actually had to s-l-o-w film down so you could see his moves.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
