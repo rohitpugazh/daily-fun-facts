@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_09_25-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_09_26-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> It`s against the law to doze off under a hair dryer in Florida/against the law to slap an old friend on the back in Georgia/against the law to Play hopscotch on a Sunday in Missouri.
+> Rats and horses can’t vomit.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
