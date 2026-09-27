@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> “Duff” is the decaying organic matter found on a forest floor.
+> Beethoven dipped his head in cold water before he composed.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
