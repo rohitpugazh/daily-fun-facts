@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The average human eats 8 spiders in their lifetime at night.
+> In ancient Greece "idiot" meant a private citizen or layman.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
