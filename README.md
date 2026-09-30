@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> An ant always falls over on its right side when intoxicated.
+> Fictional/horror writer Stephen King sleeps with a nearby light on to calm his fear of the dark. 
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
