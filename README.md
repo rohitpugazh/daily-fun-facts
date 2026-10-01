@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Women blink nearly twice as much as men.
+> The human heart creates enough pressure to squirt blood 30ft.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
