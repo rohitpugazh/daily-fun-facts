@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Cats have over one hundred vocal sounds; dogs only have about ten.
+> Canadian researchers have found that Einstein's brain was 15% wider than normal.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
