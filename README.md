@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Alabama was the first state to recognize Christmas as an official holiday.
+> `Obsession` is the most popular boat name.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
