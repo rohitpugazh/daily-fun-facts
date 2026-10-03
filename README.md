@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> All 50 states are listed across the top of the Lincoln Memorial on the back of the $5 bill.
+> Alabama was the first state to recognize Christmas as an official holiday.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
