@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Jim Henson first coined the word “Muppet”. It is a combination of “marionette” and “puppet.”
+> Between 2 and 3 jockeys are killed each year in horse racing.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
