@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_10_03-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_10_04-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> `Obsession` is the most popular boat name.
+> Jim Henson first coined the word “Muppet”. It is a combination of “marionette” and “puppet.”
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
