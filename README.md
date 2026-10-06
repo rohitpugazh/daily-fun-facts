@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Over 60% of all those who marry get divorced.
+> In York, it is perfectly legal to shoot a Scotsman with a bow and arrow (except on Sundays)
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
