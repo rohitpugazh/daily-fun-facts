@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Lithuania has the highest suicide rate in the world.
+> 13% of Americans actually believe that some parts of the moon are made of cheese.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
