@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The S in Harry S. Truman did not stand for anything.
+> A cat has 32 muscles in each ear.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
