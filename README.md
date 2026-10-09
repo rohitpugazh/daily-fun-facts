@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The giant squid has the largest eyes in the world.
+> The US has more personal computers than the next 7 countries combined.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
