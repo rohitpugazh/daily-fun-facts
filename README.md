@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> In Iceland, a Big Mac costs $5.50.
+> Johnny Appleseed planted apples so that people could use apple cider to make alcohol.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
