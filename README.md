@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> China has more English speakers than the United States.
+> Your ribs move about 5 million times a year, every time you breathe!
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
