@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> There is approximately one chicken for every human being in the world.
+> Leonardo Da Vinci invented the scissors, the helicopter, and many other present day items.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
