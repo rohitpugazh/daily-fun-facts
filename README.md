@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Nutmeg is extremely poisonous if injected intravenously.
+> Male bats have the highest rate of homosexuality of any mammal.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
