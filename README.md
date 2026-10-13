@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_10_12-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_10_13-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Leonardo Da Vinci invented the scissors, the helicopter, and many other present day items.
+> Nutmeg is extremely poisonous if injected intravenously.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
