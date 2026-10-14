@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> It costs more to buy a new car today in the United States than it cost Christopher Columbus to equip and undertake three voyages to and from the New World.
+> About 14% of injecting drug users are HIV positive.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
