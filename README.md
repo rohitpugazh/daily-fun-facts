@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> About 14% of injecting drug users are HIV positive.
+> Pinocchio is Italian for "pine head."
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
