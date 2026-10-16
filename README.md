@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Some worms will eat themselves if they can't find any food!
+> A spider has transparent blood.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
