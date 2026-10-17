@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> 98% of all murders and rapes are by a close family member or friend of the victim.
+> One in every 4 Americans has appeared on television.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
