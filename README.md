@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> A Boeing 747`s wingspan is longer than the Wright brother`s first flight.
+> There is an average of 61,000 people airborne over the US at any given moment.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
