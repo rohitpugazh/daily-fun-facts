@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Louisiana's capital building is the tallest one of any U.S. state.
+> Every year 11,000 Americans injure themselves while trying out bizarre sexual positions.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
