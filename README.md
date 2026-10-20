@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Every year 11,000 Americans injure themselves while trying out bizarre sexual positions.
+> Bullet proof vests, fire escapes, windshield wipers, and laser printers were all invented by women
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
