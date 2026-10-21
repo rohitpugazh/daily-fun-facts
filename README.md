@@ -4,9 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Ramses brand condom is named after the great pharaoh Ramses II who fathered over 160 children.
-
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+> Fun Fact: Did you know that GitHub Actions can automate your life? 🚀
 
 ---
 
