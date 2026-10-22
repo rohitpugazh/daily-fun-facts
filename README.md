@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> If you go blind in one eye you only lose about one fifth of your vision but all your sense of depth.
+> Salt Lake City, Utah has a law against carrying an unwrapped ukulele on the street.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
