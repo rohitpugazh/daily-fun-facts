@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The most common name in Italy is Mario Rossi.
+> Van Gogh only sold one painting when he was alive.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
