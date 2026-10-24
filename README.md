@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_10_23-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_10_24-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Van Gogh only sold one painting when he was alive.
+> There are 336 dimples on a regulation US golf ball. In the UK its 330.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
