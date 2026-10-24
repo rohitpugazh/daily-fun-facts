@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> There are 336 dimples on a regulation US golf ball. In the UK its 330.
+> Sailfish can leap out of the water and into the air at a speed of 50 miles (81 km) per hour.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
