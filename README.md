@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Rats multiply so quickly that in 18 months, two rats could have over million descendants.
+> The only nation whose name begins with an "A", but doesn`t end in an "A" is Afghanistan.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
