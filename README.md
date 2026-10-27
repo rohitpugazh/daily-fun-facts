@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The average lead pencil will draw a line 35 miles long or write approximately 50,000 English words.
+> It has NEVER rained in Calama, a town in the Atacama Desert of Chile.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
