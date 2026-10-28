@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Some worms will eat themselves if they can't find any food!
+> About 55% of all movies are rated R.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
