@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Most collect calls are made on father`s day.
+> Mexico City sinks about 10 inches a year
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
