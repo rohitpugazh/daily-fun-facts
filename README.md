@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> In a test performed by Canadian scientists, using various different styles of music, it was determined that chickens lay the most eggs when pop music was played.
+> During his entire life, Vincent Van Gogh sold exactly one painting, “Red Vineyard at Arles”.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
