@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Right-handed people live, on average; nine years longer than left handed people.
+> Half of all Americans live within 50 miles of their birthplace.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
