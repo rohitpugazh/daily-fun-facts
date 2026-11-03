@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> If you were to take a taxicab from New York City to Los Angeles, it would cost you $8,325.
+> The "Dull Men's Hall of Fame" is located in Carroll, Wisconsin.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
