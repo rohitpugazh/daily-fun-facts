@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Butterflies taste with their hind feet.
+> A family of 26 could go to the movies in Mexico city for the price of one in Tokyo.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
