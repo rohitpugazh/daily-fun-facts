@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Dogs and cats consume over $11 billion worth of pet food a year
+> Meteorologists claim they`re right 85% of the time (think about that one!)
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
