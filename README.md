@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> An Olympic gold medal must contain 92.5 percent silver
+> Over 60% of all those who marry get divorced.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
