@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> A “quidnunc” is a person who is eager to know the latest news and gossip.
+> “Canada” is an Indian word meaning “Big Village”.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
