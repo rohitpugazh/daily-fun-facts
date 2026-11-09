@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Intelligent people have more zinc and copper in their hair.
+> Kelsey Grammar sings and plays the piano for the theme song of Fraiser.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
