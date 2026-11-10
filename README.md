@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Bulgarians are known to be the biggest yogurt eaters in the world.
+> Reindeer like to eat bananas.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
