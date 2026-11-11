@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Cats have over 100 vocal sounds; dogs only have 10.
+> In the last 4000 years no new animals have been domesticated.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
