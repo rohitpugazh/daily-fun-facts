@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> In a test performed by Canadian scientists, using various different styles of music, it was determined that chickens lay the most eggs when pop music was played.
+> The ZIP in “ZIP code” means Zoning Improvement Plan.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
