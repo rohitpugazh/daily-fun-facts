@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> In Utah, it is illegal to swear in front of a dead person.
+> Marilyn Monroe had six toes.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
