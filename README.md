@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The Ramses brand condom is named after the great pharoh Ramses II who fathered over 160 children.
+> Most lipstick contains fish scales.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
