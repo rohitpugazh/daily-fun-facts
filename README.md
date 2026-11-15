@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The the U.S. you dial `911`. In Stockholm, Sweden you dial 90000
+> The Olympic was the sister ship of the Titanic, and she provided twenty-five years of service.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
