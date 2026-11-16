@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> A raisin dropped in a glass of fresh champagne will bounce up and down continually from the bottom of the glass to the top.
+> Americans travel 1,144,721,000 miles by air every day
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
