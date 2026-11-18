@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> Chameleons can move their eyes in two directions at the same time.
+> Montpelier, Vermont is the only state capital without a McDonalds.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
