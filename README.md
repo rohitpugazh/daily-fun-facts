@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The first song played on Armed Forces Radio during operation Desert Shield was "Rock the Casba" by the Clash.
+> Approximately every seven minutes of every day, someone in an aerobics class pulls their hamstring.
 
 [Source](http://www.djtech.net/humor/useless_facts.htm)
 
