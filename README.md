@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_11_18-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_11_19-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Montpelier, Vermont is the only state capital without a McDonalds.
+> The first song played on Armed Forces Radio during operation Desert Shield was "Rock the Casba" by the Clash.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
