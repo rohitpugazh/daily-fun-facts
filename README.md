@@ -1,12 +1,12 @@
 # 🌟 Daily Fun Fact
 
-![Last Updated](https://img.shields.io/badge/Last_Updated-2026_11_19-blue?style=flat-square)
+![Last Updated](https://img.shields.io/badge/Last_Updated-2026_11_20-blue?style=flat-square)
 
 **Latest Fun Fact:**
 
-> Approximately every seven minutes of every day, someone in an aerobics class pulls their hamstring.
+> President John F Kennedy could read 4 newspapers in 20 minutes.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
