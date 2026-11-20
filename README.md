@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> President John F Kennedy could read 4 newspapers in 20 minutes.
+> The average lifespan of an eyelash is five months.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
