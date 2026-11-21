@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> There are 41,806 different spoken languages in the world today.
+> A standard slinky measures 87 feet when stretched out.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
