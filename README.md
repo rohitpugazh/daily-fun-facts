@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The only domestic animal not mentioned in the Bible is the cat. 
+> Donkeys kill more people than plane crashes.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
