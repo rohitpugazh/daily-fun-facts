@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> The odds of being born male are about 51.2%, according to census.
+> You spend 7 years of your life in the bathroom.
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
