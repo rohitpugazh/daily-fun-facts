@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
-> Jim Morrison, of the 60's rock group The Doors, was the first rock star to be arrested on stage.
+> In The Empire Strikes Back there is a potato hidden in the asteroid field
 
-[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
+[Source](http://www.djtech.net/humor/useless_facts.htm)
 
 ---
 
