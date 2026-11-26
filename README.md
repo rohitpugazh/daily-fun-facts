@@ -4,7 +4,7 @@
 
 **Latest Fun Fact:**
 
-> The human heart creates enough pressure in the bloodstream to squirt blood 30 feet.
+> Starfish have no brains.
 
 [Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
