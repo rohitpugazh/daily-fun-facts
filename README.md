@@ -4,9 +4,9 @@
 
 **Latest Fun Fact:**
 
->  was Harrison Ford`s idea so that he could take a bathroom break.
+> Your stomach needs to produce a new layer of mucus every two weeks or it would digest itself.
 
-[Source](http://www.djtech.net/humor/useless_facts.htm)
+[Source](https://www.djtech.net/humor/shorty_useless_facts.htm)
 
 ---
 
